@@ -39,7 +39,8 @@ USB는 이러한 장점들로 인해 현재 컴퓨터와 주변기기 간 데이
 
 - 할인율과 원래가격: 11%  299,000   원
 - 가격: <span style='color:red'>68,200원</span>
-- 리뷰수: 16020  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4757756102&traceid=V0-153&itemId=6059798622&vendorItemId=73247290471)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4757756102&traceid=V0-153&itemId=6059798622&vendorItemId=73247290471)
 
 ---
 
@@ -56,7 +57,8 @@ USB는 이러한 장점들로 인해 현재 컴퓨터와 주변기기 간 데이
 
 - 할인율과 원래가격: 쿠폰할인가 26%  329,000   원
 - 가격: <span style='color:red'>26,200원</span>
-- 리뷰수: 16020  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=111559792&traceid=V0-153&itemId=335977109&vendorItemId=3824294564)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=111559792&traceid=V0-153&itemId=335977109&vendorItemId=3824294564)
 
 ---
 
@@ -73,7 +75,8 @@ USB는 이러한 장점들로 인해 현재 컴퓨터와 주변기기 간 데이
 
 - 할인율과 원래가격: 13%  329,000   원
 - 가격: <span style='color:red'>6,300원</span>
-- 리뷰수: 1887  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1301293443&traceid=V0-153&itemId=2315095101&vendorItemId=70061602269)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1301293443&traceid=V0-153&itemId=2315095101&vendorItemId=70061602269)
 
 ---
 
@@ -90,7 +93,8 @@ USB는 이러한 장점들로 인해 현재 컴퓨터와 주변기기 간 데이
 
 - 할인율과 원래가격: 13%  329,000   원
 - 가격: <span style='color:red'>8,750원</span>
-- 리뷰수: 1887  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434046234&traceid=V0-153&itemId=19346765493&vendorItemId=86460122537)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434046234&traceid=V0-153&itemId=19346765493&vendorItemId=86460122537)
 
 ---
 
@@ -107,7 +111,8 @@ USB는 이러한 장점들로 인해 현재 컴퓨터와 주변기기 간 데이
 
 - 할인율과 원래가격: 42%  69,800   원
 - 가격: <span style='color:red'>8,750원</span>
-- 리뷰수: 5981  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434046234&traceid=V0-153&itemId=19346765493&vendorItemId=86460122537)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434046234&traceid=V0-153&itemId=19346765493&vendorItemId=86460122537)
 
 ---
 
@@ -124,7 +129,8 @@ USB는 이러한 장점들로 인해 현재 컴퓨터와 주변기기 간 데이
 
 - 할인율과 원래가격: 45%  85,900   원
 - 가격: <span style='color:red'>8,600원</span>
-- 리뷰수: 498  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5309101612&traceid=V0-153&itemId=7657172318&vendorItemId=74947573873)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5309101612&traceid=V0-153&itemId=7657172318&vendorItemId=74947573873)
 
 ---
 
@@ -141,7 +147,8 @@ USB는 이러한 장점들로 인해 현재 컴퓨터와 주변기기 간 데이
 
 - 할인율과 원래가격: 쿠폰할인가 27%  329,000   원
 - 가격: <span style='color:red'>37,880원</span>
-- 리뷰수: 16020  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=111559792&traceid=V0-153&itemId=334317216&vendorItemId=3820310286)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=111559792&traceid=V0-153&itemId=334317216&vendorItemId=3820310286)
 
 ---
 
@@ -158,7 +165,8 @@ USB는 이러한 장점들로 인해 현재 컴퓨터와 주변기기 간 데이
 
 - 할인율과 원래가격: 17%  369,000   원
 - 가격: <span style='color:red'>4,740원</span>
-- 리뷰수: 1887  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1301293443&traceid=V0-153&itemId=2315095102&vendorItemId=72389153467)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1301293443&traceid=V0-153&itemId=2315095102&vendorItemId=72389153467)
 
 ---
 
@@ -175,7 +183,8 @@ USB는 이러한 장점들로 인해 현재 컴퓨터와 주변기기 간 데이
 
 - 할인율과 원래가격: 쿠폰할인가 7%  79,800   원
 - 가격: <span style='color:red'>6,900원</span>
-- 리뷰수: 1035  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434046234&traceid=V0-153&itemId=19315419589&vendorItemId=86429644769)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434046234&traceid=V0-153&itemId=19315419589&vendorItemId=86429644769)
 
 ---
 
@@ -192,7 +201,8 @@ USB는 이러한 장점들로 인해 현재 컴퓨터와 주변기기 간 데이
 
 - 할인율과 원래가격: 쿠폰할인가 26%  329,000   원
 - 가격: <span style='color:red'>18,250원</span>
-- 리뷰수: 16020  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=111559792&traceid=V0-153&itemId=335977106&vendorItemId=3824294511)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=111559792&traceid=V0-153&itemId=335977106&vendorItemId=3824294511)
 
 ---
 **USB 구매 시 주의사항**

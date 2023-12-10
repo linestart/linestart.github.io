@@ -40,7 +40,8 @@ MLB 키즈 운동화를 선택할 때는 다음과 같은 사항을 고려하는
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>51,480원</span>
-- 리뷰수: 773  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7492606660&traceid=V0-153&itemId=19595456284&vendorItemId=86702740825)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7492606660&traceid=V0-153&itemId=19595456284&vendorItemId=86702740825)
 
 ---
 
@@ -57,7 +58,8 @@ MLB 키즈 운동화를 선택할 때는 다음과 같은 사항을 고려하는
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>35,900원</span>
-- 리뷰수: 376  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6161757290&traceid=V0-153&itemId=11963232024&vendorItemId=79235807126)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6161757290&traceid=V0-153&itemId=11963232024&vendorItemId=79235807126)
 
 ---
 
@@ -74,7 +76,8 @@ MLB 키즈 운동화를 선택할 때는 다음과 같은 사항을 고려하는
 
 - 할인율과 원래가격: 18%  24,500   원
 - 가격: <span style='color:red'>59,250원</span>
-- 리뷰수: 21  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7493655437&traceid=V0-153&itemId=19599950186&vendorItemId=86707123353)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7493655437&traceid=V0-153&itemId=19599950186&vendorItemId=86707123353)
 
 ---
 
@@ -91,7 +94,8 @@ MLB 키즈 운동화를 선택할 때는 다음과 같은 사항을 고려하는
 
 - 할인율과 원래가격: 11%  420,000   원
 - 가격: <span style='color:red'>72,560원</span>
-- 리뷰수: 7  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7383360146&traceid=V0-153&itemId=19073130306&vendorItemId=87342593252)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7383360146&traceid=V0-153&itemId=19073130306&vendorItemId=87342593252)
 
 ---
 
@@ -108,7 +112,8 @@ MLB 키즈 운동화를 선택할 때는 다음과 같은 사항을 고려하는
 
 - 할인율과 원래가격: 37%  46,000   원
 - 가격: <span style='color:red'>69,800원</span>
-- 리뷰수: 27  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7079677020&traceid=V0-153&itemId=17607504058&vendorItemId=84965258679)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7079677020&traceid=V0-153&itemId=17607504058&vendorItemId=84965258679)
 
 ---
 
@@ -125,7 +130,8 @@ MLB 키즈 운동화를 선택할 때는 다음과 같은 사항을 고려하는
 
 - 할인율과 원래가격: 쿠폰할인가 38%  162,000   원
 - 가격: <span style='color:red'>51,480원</span>
-- 리뷰수: 52  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7492606647&traceid=V0-153&itemId=19595456231&vendorItemId=86702740768)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7492606647&traceid=V0-153&itemId=19595456231&vendorItemId=86702740768)
 
 ---
 
@@ -142,7 +148,8 @@ MLB 키즈 운동화를 선택할 때는 다음과 같은 사항을 고려하는
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>88,000원</span>
-- 리뷰수: 106  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6428722566&traceid=V0-153&itemId=13864855287&vendorItemId=86980073410)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6428722566&traceid=V0-153&itemId=13864855287&vendorItemId=86980073410)
 
 ---
 
@@ -159,7 +166,8 @@ MLB 키즈 운동화를 선택할 때는 다음과 같은 사항을 고려하는
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>51,480원</span>
-- 리뷰수: 4  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7492606647&traceid=V0-153&itemId=19595456237&vendorItemId=86702740788)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7492606647&traceid=V0-153&itemId=19595456237&vendorItemId=86702740788)
 
 ---
 
@@ -176,7 +184,8 @@ MLB 키즈 운동화를 선택할 때는 다음과 같은 사항을 고려하는
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>61,620원</span>
-- 리뷰수: 692  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7429295106&traceid=V0-153&itemId=19291902495&vendorItemId=86406634076)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7429295106&traceid=V0-153&itemId=19291902495&vendorItemId=86406634076)
 
 ---
 
@@ -193,7 +202,8 @@ MLB 키즈 운동화를 선택할 때는 다음과 같은 사항을 고려하는
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>51,480원</span>
-- 리뷰수: 5  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7492606660&traceid=V0-153&itemId=19595456284&vendorItemId=86702740825)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7492606660&traceid=V0-153&itemId=19595456284&vendorItemId=86702740825)
 
 ---
 **MLB 키즈 운동화 구매 시 주의점**

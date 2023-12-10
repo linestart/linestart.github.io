@@ -47,7 +47,8 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 - 할인율과 원래가격: 28%  69,900   원
 - 가격: <span style='color:red'>1,353,420원</span>
-- 리뷰수: 3  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7294533106&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7294533106&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404)
 
 ---
 
@@ -64,7 +65,8 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 - 할인율과 원래가격: 쿠폰할인가 6%  29,900   원
 - 가격: <span style='color:red'>118,760원</span>
-- 리뷰수: 8495  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
 
 ---
 
@@ -81,7 +83,8 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 - 할인율과 원래가격: 73%  129,000   원
 - 가격: <span style='color:red'>1,059,000원</span>
-- 리뷰수: 3347  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159)
 
 ---
 
@@ -98,7 +101,8 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 - 할인율과 원래가격: 66%  150,000   원
 - 가격: <span style='color:red'>967,160원</span>
-- 리뷰수: 3805  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361435&vendorItemId=85282102168)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361435&vendorItemId=85282102168)
 
 ---
 
@@ -115,7 +119,8 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 - 할인율과 원래가격: 32%  160,000   원
 - 가격: <span style='color:red'>1,890,000원</span>
-- 리뷰수: 0  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=14016526546&vendorItemId=81265075326)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=14016526546&vendorItemId=81265075326)
 
 ---
 
@@ -132,7 +137,8 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 - 할인율과 원래가격: 35%  230,000   원
 - 가격: <span style='color:red'>1,234,000원</span>
-- 리뷰수: 3  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7158438174&traceid=V0-153&itemId=18010906202&vendorItemId=83029598476)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7158438174&traceid=V0-153&itemId=18010906202&vendorItemId=83029598476)
 
 ---
 
@@ -149,7 +155,8 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 - 할인율과 원래가격: 50%  360,000   원
 - 가격: <span style='color:red'>1,330,000원</span>
-- 리뷰수: 35  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361425&vendorItemId=85282102042)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361425&vendorItemId=85282102042)
 
 ---
 
@@ -166,7 +173,8 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 - 할인율과 원래가격: 35%  62,100   원
 - 가격: <span style='color:red'>1,353,420원</span>
-- 리뷰수: 1007  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7294533106&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7294533106&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404)
 
 ---
 
@@ -183,7 +191,8 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 - 할인율과 원래가격: 39%  179,000   원
 - 가격: <span style='color:red'>632,000원</span>
-- 리뷰수: 222  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141045732&traceid=V0-153&itemId=17928583121&vendorItemId=85090922496)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141045732&traceid=V0-153&itemId=17928583121&vendorItemId=85090922496)
 
 ---
 
@@ -200,7 +209,8 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 - 할인율과 원래가격: 36%  201,300   원
 - 가격: <span style='color:red'>635,550원</span>
-- 리뷰수: 453  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361431&vendorItemId=85282102119)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361431&vendorItemId=85282102119)
 
 ---
 **TV 구매 시 주의점**

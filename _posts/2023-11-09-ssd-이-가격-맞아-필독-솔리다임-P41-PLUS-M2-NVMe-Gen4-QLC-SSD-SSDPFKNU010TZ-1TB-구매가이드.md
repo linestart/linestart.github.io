@@ -39,7 +39,8 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>74,550원</span>
-- 리뷰수: 4292  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7320017635&traceid=V0-153&itemId=18772380274&vendorItemId=85903994990)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7320017635&traceid=V0-153&itemId=18772380274&vendorItemId=85903994990)
 
 ---
 
@@ -56,7 +57,8 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 - 할인율과 원래가격: 쿠폰할인가 29%  329,000   원
 - 가격: <span style='color:red'>69,500원</span>
-- 리뷰수: 16179  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=9127701173&vendorItemId=76413743812)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=9127701173&vendorItemId=76413743812)
 
 ---
 
@@ -73,7 +75,8 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 - 할인율과 원래가격: 18%  329,000   원
 - 가격: <span style='color:red'>101,300원</span>
-- 리뷰수: 4292  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=2058262205&vendorItemId=70565107853)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=2058262205&vendorItemId=70565107853)
 
 ---
 
@@ -90,7 +93,8 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 - 할인율과 원래가격: 20%  369,000   원
 - 가격: <span style='color:red'>63,250원</span>
-- 리뷰수: 4292  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 ---
 
@@ -107,7 +111,8 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 - 할인율과 원래가격: 쿠폰할인가 29%  329,000   원
 - 가격: <span style='color:red'>149,900원</span>
-- 리뷰수: 16179  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5973428191&traceid=V0-153&itemId=10735175988&vendorItemId=78015762461)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5973428191&traceid=V0-153&itemId=10735175988&vendorItemId=78015762461)
 
 ---
 
@@ -124,7 +129,8 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>8,830원</span>
-- 리뷰수: 4292  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5240021570&traceid=V0-153&itemId=7399007603&vendorItemId=74690028855)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5240021570&traceid=V0-153&itemId=7399007603&vendorItemId=74690028855)
 
 ---
 
@@ -141,7 +147,8 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 - 할인율과 원래가격: 쿠폰할인가 29%  329,000   원
 - 가격: <span style='color:red'>113,000원</span>
-- 리뷰수: 16179  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 ---
 
@@ -158,7 +165,8 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 - 할인율과 원래가격: 쿠폰할인가 36%  499,000   원
 - 가격: <span style='color:red'>88,330원</span>
-- 리뷰수: 3382  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 ---
 
@@ -175,7 +183,8 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>99,000원</span>
-- 리뷰수: 4292  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1925951860&traceid=V0-153&itemId=3269541376&vendorItemId=71256563036)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1925951860&traceid=V0-153&itemId=3269541376&vendorItemId=71256563036)
 
 ---
 
@@ -192,7 +201,8 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 - 할인율과 원래가격: 33%  36,900   원
 - 가격: <span style='color:red'>49,450원</span>
-- 리뷰수: 0  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=104047591&traceid=V0-153&itemId=19281675499&vendorItemId=3775286726)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=104047591&traceid=V0-153&itemId=19281675499&vendorItemId=3775286726)
 
 ---
 **SSD 구매시 주의점**

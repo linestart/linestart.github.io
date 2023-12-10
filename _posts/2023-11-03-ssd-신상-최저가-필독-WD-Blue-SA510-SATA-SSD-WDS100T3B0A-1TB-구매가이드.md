@@ -43,7 +43,8 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 - 할인율과 원래가격: 28%  69,900   원
 - 가격: <span style='color:red'>89,250원</span>
-- 리뷰수: 3  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6702361363&traceid=V0-153&itemId=15115812722&vendorItemId=82337605110)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6702361363&traceid=V0-153&itemId=15115812722&vendorItemId=82337605110)
 
 ---
 
@@ -60,7 +61,8 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 - 할인율과 원래가격: 쿠폰할인가 6%  29,900   원
 - 가격: <span style='color:red'>38,900원</span>
-- 리뷰수: 8495  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196383&vendorItemId=80083674408)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196383&vendorItemId=80083674408)
 
 ---
 
@@ -77,7 +79,8 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 - 할인율과 원래가격: 73%  129,000   원
 - 가격: <span style='color:red'>69,000원</span>
-- 리뷰수: 3347  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196384&vendorItemId=80083674441)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196384&vendorItemId=80083674441)
 
 ---
 
@@ -94,7 +97,8 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 - 할인율과 원래가격: 66%  150,000   원
 - 가격: <span style='color:red'>61,250원</span>
-- 리뷰수: 3805  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 ---
 
@@ -111,7 +115,8 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 - 할인율과 원래가격: 32%  160,000   원
 - 가격: <span style='color:red'>106,900원</span>
-- 리뷰수: 0  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4798364374&traceid=V0-153&itemId=6211776190&vendorItemId=73507693765)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4798364374&traceid=V0-153&itemId=6211776190&vendorItemId=73507693765)
 
 ---
 
@@ -128,7 +133,8 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 - 할인율과 원래가격: 35%  230,000   원
 - 가격: <span style='color:red'>106,900원</span>
-- 리뷰수: 3  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4798364374&traceid=V0-153&itemId=6211776200&vendorItemId=73507693802)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4798364374&traceid=V0-153&itemId=6211776200&vendorItemId=73507693802)
 
 ---
 
@@ -145,7 +151,8 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 - 할인율과 원래가격: 50%  360,000   원
 - 가격: <span style='color:red'>72,930원</span>
-- 리뷰수: 35  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=75697199773)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=75697199773)
 
 ---
 
@@ -162,7 +169,8 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 - 할인율과 원래가격: 35%  62,100   원
 - 가격: <span style='color:red'>107,010원</span>
-- 리뷰수: 1007  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 ---
 
@@ -179,7 +187,8 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 - 할인율과 원래가격: 39%  179,000   원
 - 가격: <span style='color:red'>139,700원</span>
-- 리뷰수: 222  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7689353390&traceid=V0-153&itemId=20558892306&vendorItemId=86569031372)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7689353390&traceid=V0-153&itemId=20558892306&vendorItemId=86569031372)
 
 ---
 
@@ -196,7 +205,8 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 - 할인율과 원래가격: 36%  201,300   원
 - 가격: <span style='color:red'>53,510원</span>
-- 리뷰수: 453  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=104047591&traceid=V0-153&itemId=19281675499&vendorItemId=85082188213)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=104047591&traceid=V0-153&itemId=19281675499&vendorItemId=85082188213)
 
 ---
 **SSD 구매시 주의점**

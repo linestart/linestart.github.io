@@ -49,7 +49,8 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 - 할인율과 원래가격: 11%  299,000   원
 - 가격: <span style='color:red'>79,000원</span>
-- 리뷰수: 16020  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6400820937&traceid=V0-153&itemId=13684351426&vendorItemId=80936041461)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6400820937&traceid=V0-153&itemId=13684351426&vendorItemId=80936041461)
 
 ---
 
@@ -66,7 +67,8 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 - 할인율과 원래가격: 쿠폰할인가 26%  329,000   원
 - 가격: <span style='color:red'>59,800원</span>
-- 리뷰수: 16020  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7246197613&traceid=V0-153&itemId=18422102540&vendorItemId=3229411797)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7246197613&traceid=V0-153&itemId=18422102540&vendorItemId=3229411797)
 
 ---
 
@@ -83,7 +85,8 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 - 할인율과 원래가격: 13%  329,000   원
 - 가격: <span style='color:red'>49,800원</span>
-- 리뷰수: 1887  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63315952&traceid=V0-153&itemId=215655513&vendorItemId=3519371126)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63315952&traceid=V0-153&itemId=215655513&vendorItemId=3519371126)
 
 ---
 
@@ -100,7 +103,8 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 - 할인율과 원래가격: 13%  329,000   원
 - 가격: <span style='color:red'>41,790원</span>
-- 리뷰수: 1887  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1861682869&traceid=V0-153&itemId=3164665070&vendorItemId=71152209918)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1861682869&traceid=V0-153&itemId=3164665070&vendorItemId=71152209918)
 
 ---
 
@@ -117,7 +121,8 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 - 할인율과 원래가격: 42%  69,800   원
 - 가격: <span style='color:red'>24,500원</span>
-- 리뷰수: 5981  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5492885736&traceid=V0-153&itemId=14999840873&vendorItemId=82964361599)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5492885736&traceid=V0-153&itemId=14999840873&vendorItemId=82964361599)
 
 ---
 
@@ -134,7 +139,8 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 - 할인율과 원래가격: 45%  85,900   원
 - 가격: <span style='color:red'>89,000원</span>
-- 리뷰수: 498  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7650726379&traceid=V0-153&itemId=20355834968&vendorItemId=87440101984)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7650726379&traceid=V0-153&itemId=20355834968&vendorItemId=87440101984)
 
 ---
 
@@ -151,7 +157,8 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 - 할인율과 원래가격: 쿠폰할인가 27%  329,000   원
 - 가격: <span style='color:red'>59,280원</span>
-- 리뷰수: 16020  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6132927898&traceid=V0-153&itemId=11707998235&vendorItemId=73584479760)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6132927898&traceid=V0-153&itemId=11707998235&vendorItemId=73584479760)
 
 ---
 
@@ -168,7 +175,8 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 - 할인율과 원래가격: 17%  369,000   원
 - 가격: <span style='color:red'>58,230원</span>
-- 리뷰수: 1887  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1596366339&traceid=V0-153&itemId=2727333325&vendorItemId=70717520442)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1596366339&traceid=V0-153&itemId=2727333325&vendorItemId=70717520442)
 
 ---
 
@@ -185,7 +193,8 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 - 할인율과 원래가격: 쿠폰할인가 7%  79,800   원
 - 가격: <span style='color:red'>168,000원</span>
-- 리뷰수: 1035  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6570014921&traceid=V0-153&itemId=14744661672&vendorItemId=85982947671)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6570014921&traceid=V0-153&itemId=14744661672&vendorItemId=85982947671)
 
 ---
 
@@ -202,7 +211,8 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 - 할인율과 원래가격: 쿠폰할인가 26%  329,000   원
 - 가격: <span style='color:red'>45,000원</span>
-- 리뷰수: 16020  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=229444667&traceid=V0-153&itemId=727541488&vendorItemId=4839984205)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=229444667&traceid=V0-153&itemId=727541488&vendorItemId=4839984205)
 
 ---
 **CD플레이어 구매 시 주의점**

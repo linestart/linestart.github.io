@@ -41,7 +41,8 @@ TV는 우리 삶에 다양한 긍정적인 영향을 미치는 가전제품입�
 
 - 할인율과 원래가격: 쿠폰할인가 26%  329,000   원
 - 가격: <span style='color:red'>143,500원</span>
-- 리뷰수: 16026  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621158806&traceid=V0-153&itemId=20205910703&vendorItemId=83364147477)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621158806&traceid=V0-153&itemId=20205910703&vendorItemId=83364147477)
 
 ---
 
@@ -58,7 +59,8 @@ TV는 우리 삶에 다양한 긍정적인 영향을 미치는 가전제품입�
 
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: <span style='color:red'>119,000원</span>
-- 리뷰수: 1898  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
 
 ---
 
@@ -75,7 +77,8 @@ TV는 우리 삶에 다양한 긍정적인 영향을 미치는 가전제품입�
 
 - 할인율과 원래가격: 45%  85,900   원
 - 가격: <span style='color:red'>410,320원</span>
-- 리뷰수: 499  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1445605820&traceid=V0-153&itemId=2490893719&vendorItemId=70484091785)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1445605820&traceid=V0-153&itemId=2490893719&vendorItemId=70484091785)
 
 ---
 
@@ -92,7 +95,8 @@ TV는 우리 삶에 다양한 긍정적인 영향을 미치는 가전제품입�
 
 - 할인율과 원래가격: 쿠폰할인가 27%  329,000   원
 - 가격: <span style='color:red'>209,000원</span>
-- 리뷰수: 16026  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523120701&traceid=V0-153&itemId=17971167158&vendorItemId=85128389792)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523120701&traceid=V0-153&itemId=17971167158&vendorItemId=85128389792)
 
 ---
 
@@ -109,7 +113,8 @@ TV는 우리 삶에 다양한 긍정적인 영향을 미치는 가전제품입�
 
 - 할인율과 원래가격: 45%  69,800   원
 - 가격: <span style='color:red'>2,893,000원</span>
-- 리뷰수: 5981  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7390997499&traceid=V0-153&itemId=19108751848&vendorItemId=86228991989)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7390997499&traceid=V0-153&itemId=19108751848&vendorItemId=86228991989)
 
 ---
 
@@ -126,7 +131,8 @@ TV는 우리 삶에 다양한 긍정적인 영향을 미치는 가전제품입�
 
 - 할인율과 원래가격: 45%  85,900   원
 - 가격: <span style='color:red'>223,500원</span>
-- 리뷰수: 906  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7634949505&traceid=V0-153&itemId=20271917327&vendorItemId=83384745640)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7634949505&traceid=V0-153&itemId=20271917327&vendorItemId=83384745640)
 
 ---
 
@@ -143,7 +149,8 @@ TV는 우리 삶에 다양한 긍정적인 영향을 미치는 가전제품입�
 
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: <span style='color:red'>419,000원</span>
-- 리뷰수: 1898  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6552509082&traceid=V0-153&itemId=14634271243&vendorItemId=81875808089)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6552509082&traceid=V0-153&itemId=14634271243&vendorItemId=81875808089)
 
 ---
 
@@ -160,7 +167,8 @@ TV는 우리 삶에 다양한 긍정적인 영향을 미치는 가전제품입�
 
 - 할인율과 원래가격: 17%  369,000   원
 - 가격: <span style='color:red'>1,320,000원</span>
-- 리뷰수: 1898  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7294533106&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7294533106&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404)
 
 ---
 
@@ -177,7 +185,8 @@ TV는 우리 삶에 다양한 긍정적인 영향을 미치는 가전제품입�
 
 - 할인율과 원래가격: 즉시할인가 72%  198,000   원
 - 가격: <span style='color:red'>398,000원</span>
-- 리뷰수: 701  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7680069660&traceid=V0-153&itemId=20510913404&vendorItemId=87588611734)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7680069660&traceid=V0-153&itemId=20510913404&vendorItemId=87588611734)
 
 ---
 
@@ -194,7 +203,8 @@ TV는 우리 삶에 다양한 긍정적인 영향을 미치는 가전제품입�
 
 - 할인율과 원래가격: 쿠폰할인가 27%  329,000   원
 - 가격: <span style='color:red'>1,490,000원</span>
-- 리뷰수: 16026  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361426&vendorItemId=85282102054)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361426&vendorItemId=85282102054)
 
 ---
 **TV 구매 시 주의점**

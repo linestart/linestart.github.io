@@ -39,7 +39,8 @@ TV는 별도의 설치나 조작이 필요 없이 간편하게 시청할 수 있
 
 - 할인율과 원래가격: 22%  48,900   원
 - 가격: <span style='color:red'>1,059,000원</span>
-- 리뷰수: 2350  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159)
 
 ---
 
@@ -56,7 +57,8 @@ TV는 별도의 설치나 조작이 필요 없이 간편하게 시청할 수 있
 
 - 할인율과 원래가격: 35%  64,600   원
 - 가격: <span style='color:red'>967,160원</span>
-- 리뷰수: 1276  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361435&vendorItemId=85282102168)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361435&vendorItemId=85282102168)
 
 ---
 
@@ -73,7 +75,8 @@ TV는 별도의 설치나 조작이 필요 없이 간편하게 시청할 수 있
 
 - 할인율과 원래가격: 쿠폰할인가 44%  69,800   원
 - 가격: <span style='color:red'>4,990,000원</span>
-- 리뷰수: 4890  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7104557485&traceid=V0-153&itemId=17743127358&vendorItemId=84907730311)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7104557485&traceid=V0-153&itemId=17743127358&vendorItemId=84907730311)
 
 ---
 
@@ -90,7 +93,8 @@ TV는 별도의 설치나 조작이 필요 없이 간편하게 시청할 수 있
 
 - 할인율과 원래가격: 쿠폰할인가 7%  42,000   원
 - 가격: <span style='color:red'>118,760원</span>
-- 리뷰수: 2883  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
 
 ---
 
@@ -107,7 +111,8 @@ TV는 별도의 설치나 조작이 필요 없이 간편하게 시청할 수 있
 
 - 할인율과 원래가격: 즉시할인가 33%  89,700   원
 - 가격: <span style='color:red'>632,000원</span>
-- 리뷰수: 23  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141192269&traceid=V0-153&itemId=17929209103&vendorItemId=85091537979)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141192269&traceid=V0-153&itemId=17929209103&vendorItemId=85091537979)
 
 ---
 
@@ -124,7 +129,8 @@ TV는 별도의 설치나 조작이 필요 없이 간편하게 시청할 수 있
 
 - 할인율과 원래가격: 28%  69,000   원
 - 가격: <span style='color:red'>1,191,000원</span>
-- 리뷰수: 3  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7534078520&traceid=V0-153&itemId=19789619769&vendorItemId=86892265537)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7534078520&traceid=V0-153&itemId=19789619769&vendorItemId=86892265537)
 
 ---
 
@@ -141,7 +147,8 @@ TV는 별도의 설치나 조작이 필요 없이 간편하게 시청할 수 있
 
 - 할인율과 원래가격: 60%  44,800   원
 - 가격: <span style='color:red'>1,353,420원</span>
-- 리뷰수: 6109  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7294533106&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7294533106&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404)
 
 ---
 
@@ -158,7 +165,8 @@ TV는 별도의 설치나 조작이 필요 없이 간편하게 시청할 수 있
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>1,330,000원</span>
-- 리뷰수: 2406  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361425&vendorItemId=85282102042)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361425&vendorItemId=85282102042)
 
 ---
 
@@ -175,7 +183,8 @@ TV는 별도의 설치나 조작이 필요 없이 간편하게 시청할 수 있
 
 - 할인율과 원래가격: 쿠폰할인가 17%  114,270   원
 - 가격: <span style='color:red'>10,054,000원</span>
-- 리뷰수: 490  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6530109082&traceid=V0-153&itemId=14581004991&vendorItemId=81823082549)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6530109082&traceid=V0-153&itemId=14581004991&vendorItemId=81823082549)
 
 ---
 
@@ -192,7 +201,8 @@ TV는 별도의 설치나 조작이 필요 없이 간편하게 시청할 수 있
 
 - 할인율과 원래가격: 40%  33,000   원
 - 가격: <span style='color:red'>635,550원</span>
-- 리뷰수: 3914  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361431&vendorItemId=85282102119)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361431&vendorItemId=85282102119)
 
 ---
 **TV 구매 시 주의점**

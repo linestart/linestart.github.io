@@ -75,7 +75,8 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 - 할인율과 원래가격: 11%  299,000   원
 - 가격: <span style='color:red'>72,250원</span>
-- 리뷰수: 16020  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1909820283&traceid=V0-153&itemId=3242731295&vendorItemId=71229915601)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1909820283&traceid=V0-153&itemId=3242731295&vendorItemId=71229915601)
 
 ---
 
@@ -92,7 +93,8 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 - 할인율과 원래가격: 쿠폰할인가 26%  329,000   원
 - 가격: <span style='color:red'>37,360원</span>
-- 리뷰수: 16020  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196383&vendorItemId=76359688897)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196383&vendorItemId=76359688897)
 
 ---
 
@@ -109,7 +111,8 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 - 할인율과 원래가격: 13%  329,000   원
 - 가격: <span style='color:red'>74,000원</span>
-- 리뷰수: 1887  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=83949321713)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=83949321713)
 
 ---
 
@@ -126,7 +129,8 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 - 할인율과 원래가격: 13%  329,000   원
 - 가격: <span style='color:red'>145,000원</span>
-- 리뷰수: 1887  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=83637034647)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=83637034647)
 
 ---
 
@@ -143,7 +147,8 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 - 할인율과 원래가격: 42%  69,800   원
 - 가격: <span style='color:red'>41,700원</span>
-- 리뷰수: 5981  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7651237154&traceid=V0-153&itemId=20358823027&vendorItemId=87442989835)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7651237154&traceid=V0-153&itemId=20358823027&vendorItemId=87442989835)
 
 ---
 
@@ -160,7 +165,8 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 - 할인율과 원래가격: 45%  85,900   원
 - 가격: <span style='color:red'>74,900원</span>
-- 리뷰수: 498  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4798364374&traceid=V0-153&itemId=6156817511&vendorItemId=73453010456)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4798364374&traceid=V0-153&itemId=6156817511&vendorItemId=73453010456)
 
 ---
 
@@ -177,7 +183,8 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 - 할인율과 원래가격: 쿠폰할인가 27%  329,000   원
 - 가격: <span style='color:red'>61,250원</span>
-- 리뷰수: 16020  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 ---
 
@@ -194,7 +201,8 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 - 할인율과 원래가격: 17%  369,000   원
 - 가격: <span style='color:red'>66,370원</span>
-- 리뷰수: 1887  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196384&vendorItemId=76359688876)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196384&vendorItemId=76359688876)
 
 ---
 
@@ -211,7 +219,8 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 - 할인율과 원래가격: 쿠폰할인가 7%  79,800   원
 - 가격: <span style='color:red'>28,960원</span>
-- 리뷰수: 1035  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1703915122&traceid=V0-153&itemId=2532751024&vendorItemId=85159589010)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1703915122&traceid=V0-153&itemId=2532751024&vendorItemId=85159589010)
 
 ---
 
@@ -228,7 +237,8 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 - 할인율과 원래가격: 쿠폰할인가 26%  329,000   원
 - 가격: <span style='color:red'>254,500원</span>
-- 리뷰수: 16020  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=18795220309&vendorItemId=86438394640)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=18795220309&vendorItemId=86438394640)
 
 ---
 **SSD 구매 시 주의점**

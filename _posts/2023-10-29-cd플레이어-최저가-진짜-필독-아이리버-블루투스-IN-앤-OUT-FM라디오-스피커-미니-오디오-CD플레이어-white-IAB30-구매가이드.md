@@ -41,7 +41,8 @@ CD는 내구성이 뛰어나 오래도록 사용할 수 있습니다. CD는 긁�
 
 - 할인율과 원래가격: 쿠폰할인가 26%  329,000   원
 - 가격: <span style='color:red'>79,000원</span>
-- 리뷰수: 16026  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6400820937&traceid=V0-153&itemId=13684351426&vendorItemId=80936041461)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6400820937&traceid=V0-153&itemId=13684351426&vendorItemId=80936041461)
 
 ---
 
@@ -58,7 +59,8 @@ CD는 내구성이 뛰어나 오래도록 사용할 수 있습니다. CD는 긁�
 
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: <span style='color:red'>59,800원</span>
-- 리뷰수: 1898  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7246197613&traceid=V0-153&itemId=18422102540&vendorItemId=3229411797)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7246197613&traceid=V0-153&itemId=18422102540&vendorItemId=3229411797)
 
 ---
 
@@ -75,7 +77,8 @@ CD는 내구성이 뛰어나 오래도록 사용할 수 있습니다. CD는 긁�
 
 - 할인율과 원래가격: 45%  85,900   원
 - 가격: <span style='color:red'>49,800원</span>
-- 리뷰수: 499  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63315952&traceid=V0-153&itemId=215655513&vendorItemId=3519371126)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63315952&traceid=V0-153&itemId=215655513&vendorItemId=3519371126)
 
 ---
 
@@ -92,7 +95,8 @@ CD는 내구성이 뛰어나 오래도록 사용할 수 있습니다. CD는 긁�
 
 - 할인율과 원래가격: 쿠폰할인가 27%  329,000   원
 - 가격: <span style='color:red'>42,060원</span>
-- 리뷰수: 16026  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1861682869&traceid=V0-153&itemId=3164665070&vendorItemId=71152209918)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1861682869&traceid=V0-153&itemId=3164665070&vendorItemId=71152209918)
 
 ---
 
@@ -109,7 +113,8 @@ CD는 내구성이 뛰어나 오래도록 사용할 수 있습니다. CD는 긁�
 
 - 할인율과 원래가격: 45%  69,800   원
 - 가격: <span style='color:red'>24,500원</span>
-- 리뷰수: 5981  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5492885736&traceid=V0-153&itemId=14999840873&vendorItemId=82964361599)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5492885736&traceid=V0-153&itemId=14999840873&vendorItemId=82964361599)
 
 ---
 
@@ -126,7 +131,8 @@ CD는 내구성이 뛰어나 오래도록 사용할 수 있습니다. CD는 긁�
 
 - 할인율과 원래가격: 45%  85,900   원
 - 가격: <span style='color:red'>79,800원</span>
-- 리뷰수: 906  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6994661798&traceid=V0-153&itemId=17130599080&vendorItemId=84303727399)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6994661798&traceid=V0-153&itemId=17130599080&vendorItemId=84303727399)
 
 ---
 
@@ -143,7 +149,8 @@ CD는 내구성이 뛰어나 오래도록 사용할 수 있습니다. CD는 긁�
 
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: <span style='color:red'>59,260원</span>
-- 리뷰수: 1898  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6132927898&traceid=V0-153&itemId=11707998235&vendorItemId=73584479760)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6132927898&traceid=V0-153&itemId=11707998235&vendorItemId=73584479760)
 
 ---
 
@@ -160,7 +167,8 @@ CD는 내구성이 뛰어나 오래도록 사용할 수 있습니다. CD는 긁�
 
 - 할인율과 원래가격: 17%  369,000   원
 - 가격: <span style='color:red'>58,220원</span>
-- 리뷰수: 1898  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1596366339&traceid=V0-153&itemId=2727333325&vendorItemId=70717520442)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1596366339&traceid=V0-153&itemId=2727333325&vendorItemId=70717520442)
 
 ---
 
@@ -177,7 +185,8 @@ CD는 내구성이 뛰어나 오래도록 사용할 수 있습니다. CD는 긁�
 
 - 할인율과 원래가격: 즉시할인가 72%  198,000   원
 - 가격: <span style='color:red'>98,000원</span>
-- 리뷰수: 701  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1159118286&traceid=V0-153&itemId=2135522830&vendorItemId=70133990216)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1159118286&traceid=V0-153&itemId=2135522830&vendorItemId=70133990216)
 
 ---
 
@@ -194,7 +203,8 @@ CD는 내구성이 뛰어나 오래도록 사용할 수 있습니다. CD는 긁�
 
 - 할인율과 원래가격: 쿠폰할인가 27%  329,000   원
 - 가격: <span style='color:red'>45,120원</span>
-- 리뷰수: 16026  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=229444667&traceid=V0-153&itemId=727541488&vendorItemId=4839984205)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=229444667&traceid=V0-153&itemId=727541488&vendorItemId=4839984205)
 
 ---
 **CD 플레이어 구매 시 주의 사항**
