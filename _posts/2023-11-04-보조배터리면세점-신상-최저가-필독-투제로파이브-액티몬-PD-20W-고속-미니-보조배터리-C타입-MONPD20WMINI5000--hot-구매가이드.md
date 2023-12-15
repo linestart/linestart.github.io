@@ -33,7 +33,7 @@ pin: true
 
 ## 1. [투제로파이브] 액티몬 PD 20W 고속 미니 보조배터리 C타입 MON-PD20W-MINI5000 + hot
 
-![보조배터리면세점 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d438/7c558cc73bb0b6ec2091690b54ade2f71c3a0622c1e413fbeaa894db4ec4.jpeg)
+[![보조배터리면세점 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d438/7c558cc73bb0b6ec2091690b54ade2f71c3a0622c1e413fbeaa894db4ec4.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7193375950&traceid=V0-153&itemId=18167130675&vendorItemId=84425613063)
 
 
 👍 [[투제로파이브] 액티몬 PD 20W 고속 미니 보조배터리 C타입 MON-PD20W-MINI5000 + hot <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7193375950&traceid=V0-153&itemId=18167130675&vendorItemId=84425613063) 👌 
@@ -51,7 +51,7 @@ pin: true
 
 ## 2. 새로운 펑크풍 투명기갑 보조배터리 10W 급속충전 20000밀리암페어 대용량 보조배터리, 블랙, 20000
 
-![보조배터리면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c95d/39d2d3d3e22d4ca1c219d3102ffa53fbed483ace28ae7b8753a685db0062.jpg)
+[![보조배터리면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c95d/39d2d3d3e22d4ca1c219d3102ffa53fbed483ace28ae7b8753a685db0062.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7343343875&traceid=V0-153&itemId=18879797944&vendorItemId=86008281933)
 
 
 👍 [새로운 펑크풍 투명기갑 보조배터리 10W 급속충전 20000밀리암페어 대용량 보조배터리, 블랙, 20000 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7343343875&traceid=V0-153&itemId=18879797944&vendorItemId=86008281933) 👌 
@@ -69,7 +69,7 @@ pin: true
 
 ## 3. 카카오프렌즈 사각 PD 20W 포켓 퀵 보조배터리 10000mAh, WI22-PB10K-01, 춘식
 
-![보조배터리면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1345749439183093-91c93e6e-52f5-4c55-a568-6c225be9bad8.jpg)
+[![보조배터리면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1345749439183093-91c93e6e-52f5-4c55-a568-6c225be9bad8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6638199669&traceid=V0-153&itemId=15164593209&vendorItemId=82385994932)
 
 
 👍 [카카오프렌즈 사각 PD 20W 포켓 퀵 보조배터리 10000mAh, WI22-PB10K-01, 춘식 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6638199669&traceid=V0-153&itemId=15164593209&vendorItemId=82385994932) 👌 
@@ -87,7 +87,7 @@ pin: true
 
 ## 4. 사각 PD 노트북 충전가능 보조 배터리 20000mAh, 춘식이, WPB20000_PD
 
-![보조배터리면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/03/29/12/0/2a0aef7a-888d-4076-a127-7b9dd9322096.jpg)
+[![보조배터리면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/03/29/12/0/2a0aef7a-888d-4076-a127-7b9dd9322096.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7230119696&traceid=V0-153&itemId=18344020128&vendorItemId=85488168363)
 
 
 👍 [사각 PD 노트북 충전가능 보조 배터리 20000mAh, 춘식이, WPB20000_PD <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7230119696&traceid=V0-153&itemId=18344020128&vendorItemId=85488168363) 👌 
@@ -105,7 +105,7 @@ pin: true
 
 ## 5. KLIFE 30000mAh 대용량 보조배터리 잔량표시, 블랙, 블랙 30000mAh
 
-![보조배터리면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/28f8/1c2bce73595b4d9e33a6e9c284c73a05ac5f1b4e636786f63ae214a0556c.jpg)
+[![보조배터리면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/28f8/1c2bce73595b4d9e33a6e9c284c73a05ac5f1b4e636786f63ae214a0556c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6827663522&traceid=V0-153&itemId=16199957632&vendorItemId=83904772195)
 
 
 👍 [KLIFE 30000mAh 대용량 보조배터리 잔량표시, 블랙, 블랙 30000mAh <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6827663522&traceid=V0-153&itemId=16199957632&vendorItemId=83904772195) 👌 
@@ -123,7 +123,7 @@ pin: true
 
 ## 6. 쿨린 고속충전 대용량 보조배터리 20000mAh 22.5W CL322, 화이트
 
-![보조배터리면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1ee1/cb6d2628d17436eec322c0877f6f1ab8699d93b441f598c901fa2f5623f5.jpg)
+[![보조배터리면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1ee1/cb6d2628d17436eec322c0877f6f1ab8699d93b441f598c901fa2f5623f5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6981687238&traceid=V0-153&itemId=17056801771&vendorItemId=86138550082)
 
 
 👍 [쿨린 고속충전 대용량 보조배터리 20000mAh 22.5W CL322, 화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6981687238&traceid=V0-153&itemId=17056801771&vendorItemId=86138550082) 👌 
@@ -141,7 +141,7 @@ pin: true
 
 ## 7. 초고속충전 LED 보조배터리 대용량 휴대용 배터리 20000mah
 
-![보조배터리면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9bb0/5fbb1ddb6ad933d356b945a2bef94e47871bfd964e00e8bcbbeb6ce01065.jpg)
+[![보조배터리면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9bb0/5fbb1ddb6ad933d356b945a2bef94e47871bfd964e00e8bcbbeb6ce01065.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7338374167&traceid=V0-153&itemId=18855212073&vendorItemId=86582642918)
 
 
 👍 [초고속충전 LED 보조배터리 대용량 휴대용 배터리 20000mah <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7338374167&traceid=V0-153&itemId=18855212073&vendorItemId=86582642918) 👌 
@@ -159,7 +159,7 @@ pin: true
 
 ## 8. 카카오프렌즈 고속충전 10 000mAh 보조배터리 라이언 어피치 춘식이 죠르디, 데일리 어피치
 
-![보조배터리면세점 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7fc4/9d45ea4f9b36ab2447905b0efd9c5444ae756747d2cc69459003a5a90f43.jpg)
+[![보조배터리면세점 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7fc4/9d45ea4f9b36ab2447905b0efd9c5444ae756747d2cc69459003a5a90f43.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6964658376&traceid=V0-153&itemId=16968052538&vendorItemId=84144932461)
 
 
 👍 [카카오프렌즈 고속충전 10 000mAh 보조배터리 라이언 어피치 춘식이 죠르디, 데일리 어피치 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6964658376&traceid=V0-153&itemId=16968052538&vendorItemId=84144932461) 👌 
@@ -177,7 +177,7 @@ pin: true
 
 ## 9. 하마다 도킹형 미니 5000mAh 보조배터리 C타입, PR-ST5000-C, 화이트
 
-![보조배터리면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3848250756549611-76657596-c8e7-4dc4-88e8-a749a0f7d969.jpg)
+[![보조배터리면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3848250756549611-76657596-c8e7-4dc4-88e8-a749a0f7d969.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7186102888&traceid=V0-153&itemId=18133456686&vendorItemId=84215366480)
 
 
 👍 [하마다 도킹형 미니 5000mAh 보조배터리 C타입, PR-ST5000-C, 화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7186102888&traceid=V0-153&itemId=18133456686&vendorItemId=84215366480) 👌 
@@ -195,7 +195,7 @@ pin: true
 
 ## 10. Ciliver 대용량 30 000밀리암페어 디스플레이 보조배터리 파워뱅크 모바일 전원 휴대폰 일반 도매, 30000밀리암페어 실족, 붉은색
 
-![보조배터리면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/20a6/5012bf97cbcb46fccb51742d5334dbea012e29fa4acead86d9c6cf8da939.jpg)
+[![보조배터리면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/20a6/5012bf97cbcb46fccb51742d5334dbea012e29fa4acead86d9c6cf8da939.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6974789048&traceid=V0-153&itemId=17021470637&vendorItemId=84197040712)
 
 
 👍 [Ciliver 대용량 30 000밀리암페어 디스플레이 보조배터리 파워뱅크 모바일 전원 휴대폰 일반 도매, 30000밀리암페어 실족, 붉은색 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6974789048&traceid=V0-153&itemId=17021470637&vendorItemId=84197040712) 👌 

@@ -39,7 +39,7 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 ## 1. 삼성전자 4K QLED TV, 163cm(65인치), KQ65QC67AFXKR, 스탠드형, 방문설치
 
-![tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/04/26/10/3/17438ea4-f805-49a7-b787-7176e29afb9c.jpg)
+[![tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/04/26/10/3/17438ea4-f805-49a7-b787-7176e29afb9c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7294533106&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404)
 
 
 👍 [삼성전자 4K QLED TV, 163cm(65인치), KQ65QC67AFXKR, 스탠드형, 방문설치 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7294533106&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404) 👌 
@@ -57,7 +57,7 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 ## 2. 프리즘 HD LED TV, 82cm(32인치), PT320HD, 스탠드형, 자가설치
 
-![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5296877259013933-81144453-dd2a-4724-9bc1-93a9b841f85e.jpg)
+[![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5296877259013933-81144453-dd2a-4724-9bc1-93a9b841f85e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
 
 
 👍 [프리즘 HD LED TV, 82cm(32인치), PT320HD, 스탠드형, 자가설치 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174) 👌 
@@ -75,7 +75,7 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 ## 3. 삼성전자 4K UHD LED TV, 176cm(70인치), KU70UA7000FXKR, 스탠드형, 방문설치
 
-![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/710930450350763-18ba6095-ba32-4c0a-8b3a-f5a001745f15.jpg)
+[![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/710930450350763-18ba6095-ba32-4c0a-8b3a-f5a001745f15.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159)
 
 
 👍 [삼성전자 4K UHD LED TV, 176cm(70인치), KU70UA7000FXKR, 스탠드형, 방문설치 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159) 👌 
@@ -93,7 +93,7 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 ## 4. 삼성전자 Crystal UHD TV, 163cm(65인치), KU65UC7000FXKR, 스탠드형, 방문설치
 
-![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/wocgnrte/632ccefde7f74b0792bf8f9b57c1b497.jpg)
+[![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/wocgnrte/632ccefde7f74b0792bf8f9b57c1b497.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361435&vendorItemId=85282102168)
 
 
 👍 [삼성전자 Crystal UHD TV, 163cm(65인치), KU65UC7000FXKR, 스탠드형, 방문설치 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361435&vendorItemId=85282102168) 👌 
@@ -111,7 +111,7 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 ## 5. 삼성전자 4K UHD TV, 214cm(85인치), KU85UA7000FXKR, 스탠드형, 방문설치
 
-![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/04/12/11/3/2da69571-62e2-4044-a595-f31ef6c90f3d.jpg)
+[![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/04/12/11/3/2da69571-62e2-4044-a595-f31ef6c90f3d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=14016526546&vendorItemId=81265075326)
 
 
 👍 [삼성전자 4K UHD TV, 214cm(85인치), KU85UA7000FXKR, 스탠드형, 방문설치 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=14016526546&vendorItemId=81265075326) 👌 
@@ -129,7 +129,7 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 ## 6. LG전자 75UP7070 75인치(190cm) 4K UHD 스마트TV 매장방문수령
 
-![tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d224/c099a5e23d9de4f435ab1d4fe788b617f86b882e99c3300aae4ef3ec382c.jpg)
+[![tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d224/c099a5e23d9de4f435ab1d4fe788b617f86b882e99c3300aae4ef3ec382c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7158438174&traceid=V0-153&itemId=18010906202&vendorItemId=83029598476)
 
 
 👍 [LG전자 75UP7070 75인치(190cm) 4K UHD 스마트TV 매장방문수령 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7158438174&traceid=V0-153&itemId=18010906202&vendorItemId=83029598476) 👌 
@@ -147,7 +147,7 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 ## 7. 삼성전자 Crystal UHD TV, 189cm(75인치), KU75UC7000FXKR(스탠드형), 스탠드형, 방문설치
 
-![tv TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/sgrjh49o/c2512f4490624b00b3f82a07e26cd6e7.jpg)
+[![tv TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/sgrjh49o/c2512f4490624b00b3f82a07e26cd6e7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361425&vendorItemId=85282102042)
 
 
 👍 [삼성전자 Crystal UHD TV, 189cm(75인치), KU75UC7000FXKR(스탠드형), 스탠드형, 방문설치 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361425&vendorItemId=85282102042) 👌 
@@ -165,7 +165,7 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 ## 8. 삼성전자 4K QLED TV, 163cm(65인치), KQ65QC67AFXKR, 스탠드형, 방문설치
 
-![tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/04/26/10/3/17438ea4-f805-49a7-b787-7176e29afb9c.jpg)
+[![tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/04/26/10/3/17438ea4-f805-49a7-b787-7176e29afb9c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7294533106&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404)
 
 
 👍 [삼성전자 4K QLED TV, 163cm(65인치), KQ65QC67AFXKR, 스탠드형, 방문설치 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7294533106&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404) 👌 
@@ -183,7 +183,7 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 ## 9. LG 22년식 55인치(139cm)UQ7070 스마트TV 4K UHD 매장방문수령, 139cm(55인치)
 
-![tv TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a972/9102d74b71e6075cc134fd45d361a5f1fa940b6660e551e4b3b1f6db74e3.jpg)
+[![tv TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a972/9102d74b71e6075cc134fd45d361a5f1fa940b6660e551e4b3b1f6db74e3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141045732&traceid=V0-153&itemId=17928583121&vendorItemId=85090922496)
 
 
 👍 [LG 22년식 55인치(139cm)UQ7070 스마트TV 4K UHD 매장방문수령, 139cm(55인치) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141045732&traceid=V0-153&itemId=17928583121&vendorItemId=85090922496) 👌 
@@ -201,7 +201,7 @@ TV는 다양한 나라의 문화를 접할 수 있는 기회를 제공합니다.
 
 ## 10. 삼성전자 Crystal UHD TV, 125cm(50인치), KU50UC7000FXKR, 스탠드형, 방문설치
 
-![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/ul2vfgwl/b1926629b9674aee8c36915f71adb26f.jpg)
+[![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/ul2vfgwl/b1926629b9674aee8c36915f71adb26f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361431&vendorItemId=85282102119)
 
 
 👍 [삼성전자 Crystal UHD TV, 125cm(50인치), KU50UC7000FXKR, 스탠드형, 방문설치 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361431&vendorItemId=85282102119) 👌 

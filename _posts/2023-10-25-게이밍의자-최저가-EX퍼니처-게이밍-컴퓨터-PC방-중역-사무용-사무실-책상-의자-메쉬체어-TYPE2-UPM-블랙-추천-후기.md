@@ -45,7 +45,7 @@ pin: true
 
 ## 1. EX퍼니처 게이밍 컴퓨터 PC방 중역 사무용 사무실 책상 의자 메쉬체어 TYPE-2 UPM, 블랙
 
-![게이밍의자 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3939/a4de30ad0fc59416187280896356de06b56284b01810ae04e4ce6d8be1ff.jpg)
+[![게이밍의자 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3939/a4de30ad0fc59416187280896356de06b56284b01810ae04e4ce6d8be1ff.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7650932692&traceid=V0-153&itemId=20357101719&vendorItemId=4603544578)
 
 
 👍 [EX퍼니처 게이밍 컴퓨터 PC방 중역 사무용 사무실 책상 의자 메쉬체어 TYPE-2 UPM, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7650932692&traceid=V0-153&itemId=20357101719&vendorItemId=4603544578) 👌 
@@ -63,7 +63,7 @@ pin: true
 
 ## 2. 빅트랙 베이직 게이밍 의자 A-01, 블랙 화이트
 
-![게이밍의자 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/12/31/15/1/2ae04f4c-3dc8-40e8-bd20-0a01e55a179f.jpg)
+[![게이밍의자 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/12/31/15/1/2ae04f4c-3dc8-40e8-bd20-0a01e55a179f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6622610236&traceid=V0-153&itemId=12768357170&vendorItemId=80034519330)
 
 
 👍 [빅트랙 베이직 게이밍 의자 A-01, 블랙 화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6622610236&traceid=V0-153&itemId=12768357170&vendorItemId=80034519330) 👌 
@@ -81,7 +81,7 @@ pin: true
 
 ## 3. 타이탄 침대형 가죽의자, 블랙
 
-![게이밍의자 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bd49/d490458eda3525ef3ad743dae600f5820debea36a6b28a79748fb90e45d8.jpg)
+[![게이밍의자 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bd49/d490458eda3525ef3ad743dae600f5820debea36a6b28a79748fb90e45d8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4758355655&traceid=V0-153&itemId=7967261327&vendorItemId=83652587021)
 
 
 👍 [타이탄 침대형 가죽의자, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4758355655&traceid=V0-153&itemId=7967261327&vendorItemId=83652587021) 👌 
@@ -99,7 +99,7 @@ pin: true
 
 ## 4. 슈스 베이직 게이밍 의자 GAC-10A, 블랙 + 화이트
 
-![게이밍의자 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/6012540905967569-a45b4b2c-7c20-45e2-a6a1-ee0731854972.jpg)
+[![게이밍의자 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/6012540905967569-a45b4b2c-7c20-45e2-a6a1-ee0731854972.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7398161097&traceid=V0-153&itemId=19142642936&vendorItemId=86261862982)
 
 
 👍 [슈스 베이직 게이밍 의자 GAC-10A, 블랙 + 화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7398161097&traceid=V0-153&itemId=19142642936&vendorItemId=86261862982) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 5. EX퍼니처 게이밍 컴퓨터 PC방 중역 사무용 사무실 책상 의자 메쉬체어 TYPE-7 PRO, 아이보리
 
-![게이밍의자 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/852c/945f14b4e1ea02f7d234756ef11ce639e0074e6378471bf8df54f017eca4.jpg)
+[![게이밍의자 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/852c/945f14b4e1ea02f7d234756ef11ce639e0074e6378471bf8df54f017eca4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7645677274&traceid=V0-153&itemId=20328981026&vendorItemId=85969041536)
 
 
 👍 [EX퍼니처 게이밍 컴퓨터 PC방 중역 사무용 사무실 책상 의자 메쉬체어 TYPE-7 PRO, 아이보리 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7645677274&traceid=V0-153&itemId=20328981026&vendorItemId=85969041536) 👌 
@@ -135,7 +135,7 @@ pin: true
 
 ## 6. 클라우드백 게이밍 컴퓨터 사무용 사무실 중역 PC방 편한 공부 책상 학생 의자 T800MQ, T800MQ 퀼팅메쉬체어 블랙
 
-![게이밍의자 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9775/306349532f32b6b64ac56531bf3bd8414febecf8e1c0ae2203e2be8be11a.jpg)
+[![게이밍의자 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9775/306349532f32b6b64ac56531bf3bd8414febecf8e1c0ae2203e2be8be11a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7606131242&traceid=V0-153&itemId=20132811374&vendorItemId=83414251038)
 
 
 👍 [클라우드백 게이밍 컴퓨터 사무용 사무실 중역 PC방 편한 공부 책상 학생 의자 T800MQ, T800MQ 퀼팅메쉬체어 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7606131242&traceid=V0-153&itemId=20132811374&vendorItemId=83414251038) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 7. 빅트랙 베이직 게이밍 의자 A-01, 블랙그레이
 
-![게이밍의자 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2804618799453117-730e90b6-36b0-4c65-b7c5-c95e28fd5872.jpg)
+[![게이밍의자 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2804618799453117-730e90b6-36b0-4c65-b7c5-c95e28fd5872.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6622610236&traceid=V0-153&itemId=15063656272&vendorItemId=82285996488)
 
 
 👍 [빅트랙 베이직 게이밍 의자 A-01, 블랙그레이 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6622610236&traceid=V0-153&itemId=15063656272&vendorItemId=82285996488) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 8. 문스타 타이탄 게이밍의자, 타이탄체어_그레이
 
-![게이밍의자 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b6cf/4054a2f31bde20b602b94695158595ef51d33fffba0d1c455add965421fd.jpg)
+[![게이밍의자 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b6cf/4054a2f31bde20b602b94695158595ef51d33fffba0d1c455add965421fd.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7153593624&traceid=V0-153&itemId=17989769044&vendorItemId=85146374619)
 
 
 👍 [문스타 타이탄 게이밍의자, 타이탄체어_그레이 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7153593624&traceid=V0-153&itemId=17989769044&vendorItemId=85146374619) 👌 
@@ -189,7 +189,7 @@ pin: true
 
 ## 9. 클라우드백 게이밍 컴퓨터 사무용 사무실 중역 PC방 편한 공부 책상 학생 의자 T800PQ, T800PQ 퀼팅소프트체어 아이보리
 
-![게이밍의자 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b264/ec65febe9b0833f895442c9f09c340e6ba962a514bc89afbcb10144bf234.jpg)
+[![게이밍의자 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b264/ec65febe9b0833f895442c9f09c340e6ba962a514bc89afbcb10144bf234.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7606129258&traceid=V0-153&itemId=20132798994&vendorItemId=71821853158)
 
 
 👍 [클라우드백 게이밍 컴퓨터 사무용 사무실 중역 PC방 편한 공부 책상 학생 의자 T800PQ, T800PQ 퀼팅소프트체어 아이보리 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7606129258&traceid=V0-153&itemId=20132798994&vendorItemId=71821853158) 👌 
@@ -207,7 +207,7 @@ pin: true
 
 ## 10. 타이탄 침대형 가죽의자, 브라운
 
-![게이밍의자 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3810543697403923-4124655b-bee9-4578-a9d7-38c8f98786e2.jpg)
+[![게이밍의자 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3810543697403923-4124655b-bee9-4578-a9d7-38c8f98786e2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4758355655&traceid=V0-153&itemId=6060878774&vendorItemId=73357833273)
 
 
 👍 [타이탄 침대형 가죽의자, 브라운 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4758355655&traceid=V0-153&itemId=6060878774&vendorItemId=73357833273) 👌 

@@ -31,7 +31,7 @@ pin: true
 
 ## 1. 베씨 트위드 젤네일, TD-02 HAILEY, 12g, 1개
 
-![젤네일 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/etvz70on/79c83009ef09466b915d60f44b360a46.jpg)
+[![젤네일 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/etvz70on/79c83009ef09466b915d60f44b360a46.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5654346747&traceid=V0-153&itemId=10269478968&vendorItemId=77551910368)
 
 
 👍 [베씨 트위드 젤네일, TD-02 HAILEY, 12g, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5654346747&traceid=V0-153&itemId=10269478968&vendorItemId=77551910368) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. 아이빛 네일아트 젬젤 컬러 젤네일 10ml, 74 스킨연핑크, 1개
 
-![젤네일 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/ikmrsd0a/097a0fe0a8564465ae38946d7f9be7c7.jpg)
+[![젤네일 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/ikmrsd0a/097a0fe0a8564465ae38946d7f9be7c7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6213140379&traceid=V0-153&itemId=12394994356&vendorItemId=79664598198)
 
 
 👍 [아이빛 네일아트 젬젤 컬러 젤네일 10ml, 74 스킨연핑크, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6213140379&traceid=V0-153&itemId=12394994356&vendorItemId=79664598198) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 그라시아 지젤리 베이스젤 14ml, 1개
 
-![젤네일 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3226031956836788-a946cb16-9272-4dbd-a71f-eeaf4f8685bd.jpg)
+[![젤네일 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3226031956836788-a946cb16-9272-4dbd-a71f-eeaf4f8685bd.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1313593313&traceid=V0-153&itemId=2331230474&vendorItemId=74369962694)
 
 
 👍 [그라시아 지젤리 베이스젤 14ml, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1313593313&traceid=V0-153&itemId=2331230474&vendorItemId=74369962694) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 아이빛 베러톤 누드스킨 시럽 컬러 젤네일, BT-110 진주연베이지, 10ml, 1개
 
-![젤네일 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/07/17/9/3/3d09a8bd-213d-441f-bbc4-a3827cbf5233.jpg)
+[![젤네일 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/07/17/9/3/3d09a8bd-213d-441f-bbc4-a3827cbf5233.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=341360590&traceid=V0-153&itemId=3259257833&vendorItemId=71246317195)
 
 
 👍 [아이빛 베러톤 누드스킨 시럽 컬러 젤네일, BT-110 진주연베이지, 10ml, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=341360590&traceid=V0-153&itemId=3259257833&vendorItemId=71246317195) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 아이빛 인어공주 진주펄 젤네일 8종 세트, SILVER, 1세트
 
-![젤네일 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4327/a8c86acba7fd79fb6a5ce9f93414111fcb0d5be7c88dcfb61faff60c059b.jpg)
+[![젤네일 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4327/a8c86acba7fd79fb6a5ce9f93414111fcb0d5be7c88dcfb61faff60c059b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6431497588&traceid=V0-153&itemId=13882414849&vendorItemId=86893760129)
 
 
 👍 [아이빛 인어공주 진주펄 젤네일 8종 세트, SILVER, 1세트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6431497588&traceid=V0-153&itemId=13882414849&vendorItemId=86893760129) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 오호라 N 누디 로지 젤 스트립 네일 30p 세트, 1세트
 
-![젤네일 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1874421260120791-bda68307-9f64-4d92-b0d8-ca757fdb5216.jpg)
+[![젤네일 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1874421260120791-bda68307-9f64-4d92-b0d8-ca757fdb5216.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7154336775&traceid=V0-153&itemId=18803530430&vendorItemId=85934254062)
 
 
 👍 [오호라 N 누디 로지 젤 스트립 네일 30p 세트, 1세트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7154336775&traceid=V0-153&itemId=18803530430&vendorItemId=85934254062) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. 요거트네일 봄꽃엔딩 시럽 젤 8ml, 07 봄꽃엔딩, 1개
 
-![젤네일 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1717179114953416-a7553c88-8d13-4758-bfd1-59c8cb9bc809.jpg)
+[![젤네일 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1717179114953416-a7553c88-8d13-4758-bfd1-59c8cb9bc809.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6685409356&traceid=V0-153&itemId=15431301565&vendorItemId=82650980367)
 
 
 👍 [요거트네일 봄꽃엔딩 시럽 젤 8ml, 07 봄꽃엔딩, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6685409356&traceid=V0-153&itemId=15431301565&vendorItemId=82650980367) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 아이빛 베러톤 말랑말랑 스윗코코 젤네일 컬러젤, OS-02, 1개, 10ml
 
-![젤네일 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/buoycnza/bf110ee66a01430a894d984dcb4b4e19.jpg)
+[![젤네일 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/buoycnza/bf110ee66a01430a894d984dcb4b4e19.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5722637441&traceid=V0-153&itemId=7708192350&vendorItemId=74998428062)
 
 
 👍 [아이빛 베러톤 말랑말랑 스윗코코 젤네일 컬러젤, OS-02, 1개, 10ml <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5722637441&traceid=V0-153&itemId=7708192350&vendorItemId=74998428062) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 델리뷰티 딥시럽 루어인무드 네일컬러 10ml, MSY07 마룬 와인, 1개
 
-![젤네일 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/ol3qsqz1/937a433234db478285ecae6952fa7c09.jpg)
+[![젤네일 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/ol3qsqz1/937a433234db478285ecae6952fa7c09.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6557183555&traceid=V0-153&itemId=14663138552&vendorItemId=81904278862)
 
 
 👍 [델리뷰티 딥시럽 루어인무드 네일컬러 10ml, MSY07 마룬 와인, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6557183555&traceid=V0-153&itemId=14663138552&vendorItemId=81904278862) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 아이빛 베러톤 누드스킨 시럽 컬러 젤네일, BT-101 연베이지, 10ml, 1개
 
-![젤네일 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2019/11/19/19/6/e121fab6-a3ac-4eaa-abe0-436afcaacd3f.jpg)
+[![젤네일 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2019/11/19/19/6/e121fab6-a3ac-4eaa-abe0-436afcaacd3f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=341360590&traceid=V0-153&itemId=1086474915&vendorItemId=5594167961)
 
 
 👍 [아이빛 베러톤 누드스킨 시럽 컬러 젤네일, BT-101 연베이지, 10ml, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=341360590&traceid=V0-153&itemId=1086474915&vendorItemId=5594167961) 👌 

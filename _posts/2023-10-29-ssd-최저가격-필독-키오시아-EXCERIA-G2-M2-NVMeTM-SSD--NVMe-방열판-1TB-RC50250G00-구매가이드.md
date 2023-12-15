@@ -67,7 +67,7 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 ## 1. 키오시아 EXCERIA G2 M.2 NVMeTM SSD + NVMe 방열판, 1TB, RC50250G00
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2949554013497192-cbebef6b-b9e2-4a40-9e74-52cd91b262c3.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2949554013497192-cbebef6b-b9e2-4a40-9e74-52cd91b262c3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1909820283&traceid=V0-153&itemId=3242731295&vendorItemId=71229915601)
 
 
 👍 [키오시아 EXCERIA G2 M.2 NVMeTM SSD + NVMe 방열판, 1TB, RC50250G00 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1909820283&traceid=V0-153&itemId=3242731295&vendorItemId=71229915601) 👌 
@@ -85,7 +85,7 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 ## 2. 한창코퍼레이션 CLOUD SSD, 512GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/06/02/10/6/ef3129ca-26b2-4abe-8d18-895a13280584.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/06/02/10/6/ef3129ca-26b2-4abe-8d18-895a13280584.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196383&vendorItemId=76359688897)
 
 
 👍 [한창코퍼레이션 CLOUD SSD, 512GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196383&vendorItemId=76359688897) 👌 
@@ -103,7 +103,7 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 ## 3. 삼성전자 870 EVO SATA SSD, 500GB, MZ-77E500B/KR
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/546d/022aa29f657d1bbdf3e485ff1a6c688cfa4171ee6125a4fb7ed109280701.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/546d/022aa29f657d1bbdf3e485ff1a6c688cfa4171ee6125a4fb7ed109280701.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=83949321713)
 
 
 👍 [삼성전자 870 EVO SATA SSD, 500GB, MZ-77E500B/KR <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=83949321713) 👌 
@@ -121,7 +121,7 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 ## 4. 삼성전자 870 EVO SSD, 1TB, MZ-77E1T0
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7c92/a18fa43f711ae7cdb01b825c77afe2d4131c4b377c38019173dee982c03f.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7c92/a18fa43f711ae7cdb01b825c77afe2d4131c4b377c38019173dee982c03f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=83637034647)
 
 
 👍 [삼성전자 870 EVO SSD, 1TB, MZ-77E1T0 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=83637034647) 👌 
@@ -139,7 +139,7 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 ## 5. 1/1+1하드 드라이브 외장하드 16tb업그레이드된 휴대용 솔리드 스 하드 드라이브 독일 이동식하드디스크 외장ssd, 외장ssd 블랙*1+블루*1, 4TB
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0a80/701dcee6134c8b269102aa6654ff49813a244f23e4073947f32dbb5c3f3e.png)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0a80/701dcee6134c8b269102aa6654ff49813a244f23e4073947f32dbb5c3f3e.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7651237154&traceid=V0-153&itemId=20358823027&vendorItemId=87442989835)
 
 
 👍 [1/1+1하드 드라이브 외장하드 16tb업그레이드된 휴대용 솔리드 스 하드 드라이브 독일 이동식하드디스크 외장ssd, 외장ssd 블랙*1+블루*1, 4TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7651237154&traceid=V0-153&itemId=20358823027&vendorItemId=87442989835) 👌 
@@ -157,7 +157,7 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 ## 6. 도시바 칸비오 외장하드 어드밴스 2세대 + 파우치 세트, 1TB, 제트 블랙
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/azbqaxao/5d7008e80960486f980ed2761f5a1195.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/azbqaxao/5d7008e80960486f980ed2761f5a1195.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4798364374&traceid=V0-153&itemId=6156817511&vendorItemId=73453010456)
 
 
 👍 [도시바 칸비오 외장하드 어드밴스 2세대 + 파우치 세트, 1TB, 제트 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4798364374&traceid=V0-153&itemId=6156817511&vendorItemId=73453010456) 👌 
@@ -175,7 +175,7 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 ## 7. SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470) 👌 
@@ -193,7 +193,7 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 ## 8. 한창코퍼레이션 CLOUD SSD, 1TB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/06/02/10/6/ef3129ca-26b2-4abe-8d18-895a13280584.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/06/02/10/6/ef3129ca-26b2-4abe-8d18-895a13280584.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196384&vendorItemId=76359688876)
 
 
 👍 [한창코퍼레이션 CLOUD SSD, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196384&vendorItemId=76359688876) 👌 
@@ -211,7 +211,7 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 ## 9. 기가바이트 M 2 NVMe 2280 SSD, GP-GSM2NE3256GNTD, 256GB
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3680/eff7f5a907bae6e13ad83833ea52c17f512b52cb12ce6ebda5800966e309.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3680/eff7f5a907bae6e13ad83833ea52c17f512b52cb12ce6ebda5800966e309.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1703915122&traceid=V0-153&itemId=2532751024&vendorItemId=85159589010)
 
 
 👍 [기가바이트 M 2 NVMe 2280 SSD, GP-GSM2NE3256GNTD, 256GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1703915122&traceid=V0-153&itemId=2532751024&vendorItemId=85159589010) 👌 
@@ -229,7 +229,7 @@ HDD는 크기가 크지만, SSD는 크기가 작습니다.
 
 ## 10. 삼성전자 870 EVO SATA SSD 2TB, MZ-77E2T0BW
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/664b/f6b7d5e68498d335899892b43b73e68c2175bcb3eb9c2762216d85f730e5.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/664b/f6b7d5e68498d335899892b43b73e68c2175bcb3eb9c2762216d85f730e5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=18795220309&vendorItemId=86438394640)
 
 
 👍 [삼성전자 870 EVO SATA SSD 2TB, MZ-77E2T0BW <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=18795220309&vendorItemId=86438394640) 👌 

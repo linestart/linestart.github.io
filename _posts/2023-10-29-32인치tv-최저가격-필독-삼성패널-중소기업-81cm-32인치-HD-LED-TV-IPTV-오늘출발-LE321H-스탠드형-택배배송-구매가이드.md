@@ -31,7 +31,7 @@ pin: true
 
 ## 1. 삼성패널 중소기업 81cm 32인치 HD LED TV IPTV 오늘출발, LE-321H, 스탠드형, 택배배송
 
-![32인치tv TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/404d/c261981c0e8cac64c6309f8df35c6d06f918d0472a6e42ddee9a0770a8e1.jpg)
+[![32인치tv TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/404d/c261981c0e8cac64c6309f8df35c6d06f918d0472a6e42ddee9a0770a8e1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621158806&traceid=V0-153&itemId=20205910703&vendorItemId=83364147477)
 
 
 👍 [삼성패널 중소기업 81cm 32인치 HD LED TV IPTV 오늘출발, LE-321H, 스탠드형, 택배배송 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621158806&traceid=V0-153&itemId=20205910703&vendorItemId=83364147477) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. 프리즘 HD LED TV, 82cm(32인치), PT320HD, 스탠드형, 자가설치
 
-![32인치tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5296877259013933-81144453-dd2a-4724-9bc1-93a9b841f85e.jpg)
+[![32인치tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5296877259013933-81144453-dd2a-4724-9bc1-93a9b841f85e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
 
 
 👍 [프리즘 HD LED TV, 82cm(32인치), PT320HD, 스탠드형, 자가설치 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 삼성전자 HD 80 cm TV 자가설치, 80cm(32인치), UN32N4000AFXKR, 스탠드형
 
-![32인치tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1394919207411205-27092835-fff9-449f-929c-ce13ca9592bb.jpg)
+[![32인치tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1394919207411205-27092835-fff9-449f-929c-ce13ca9592bb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7478524711&traceid=V0-153&itemId=19529341062&vendorItemId=4111902235)
 
 
 👍 [삼성전자 HD 80 cm TV 자가설치, 80cm(32인치), UN32N4000AFXKR, 스탠드형 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7478524711&traceid=V0-153&itemId=19529341062&vendorItemId=4111902235) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. LG전자 HD TV, 80cm(32인치), 32LM581CBND, 방문설치, 스탠드형
 
-![32인치tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/x3k8ai6d/9997513780f145afaf079d7cf0524655.jpg)
+[![32인치tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/x3k8ai6d/9997513780f145afaf079d7cf0524655.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7144315096&traceid=V0-153&itemId=17947107896&vendorItemId=85104880787)
 
 
 👍 [LG전자 HD TV, 80cm(32인치), 32LM581CBND, 방문설치, 스탠드형 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7144315096&traceid=V0-153&itemId=17947107896&vendorItemId=85104880787) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 라익미 HD LED TV K3201S 32인치 광시야각 VA패널 에너지소비효율 1등급 프리미엄 8년 A/S 보장, 81.28cm, 라익미 K3201S, 스탠드형
 
-![32인치tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a703/450527e4beabc104be6fcc73c8fe5755a73a730d096946b8233ff828c48b.jpg)
+[![32인치tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a703/450527e4beabc104be6fcc73c8fe5755a73a730d096946b8233ff828c48b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7118937296&traceid=V0-153&itemId=17929830764&vendorItemId=85092147973)
 
 
 👍 [라익미 HD LED TV K3201S 32인치 광시야각 VA패널 에너지소비효율 1등급 프리미엄 8년 A/S 보장, 81.28cm, 라익미 K3201S, 스탠드형 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7118937296&traceid=V0-153&itemId=17929830764&vendorItemId=85092147973) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 삼성전자 80cm LH32QMRNBGCXKR 4K UHD 스마트 사이니지 TV 모니터, 스탠드형
 
-![32인치tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fdd8/0d87a83559309c2d81f99a7e6789b913299bf781f26aa5ae4054deb96699.jpg)
+[![32인치tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fdd8/0d87a83559309c2d81f99a7e6789b913299bf781f26aa5ae4054deb96699.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7178671176&traceid=V0-153&itemId=18100782203&vendorItemId=85252921007)
 
 
 👍 [삼성전자 80cm LH32QMRNBGCXKR 4K UHD 스마트 사이니지 TV 모니터, 스탠드형 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7178671176&traceid=V0-153&itemId=18100782203&vendorItemId=85252921007) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. 삼성전자 HD LED TV, 80cm(32인치), UN32N4010AFXKR, 스탠드형, 자가설치
 
-![32인치tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0565/ecfda5f830a823adc01c327eb4cb09cf48337aabe0e7d855dc2554d2e269.jpg)
+[![32인치tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0565/ecfda5f830a823adc01c327eb4cb09cf48337aabe0e7d855dc2554d2e269.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1456215819&traceid=V0-153&itemId=2506135522&vendorItemId=78660669533)
 
 
 👍 [삼성전자 HD LED TV, 80cm(32인치), UN32N4010AFXKR, 스탠드형, 자가설치 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1456215819&traceid=V0-153&itemId=2506135522&vendorItemId=78660669533) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 와사비망고 HD LED TV, 80cm(32인치), H320TA, 스탠드형, 자가설치
 
-![32인치tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5313697814183627-2489870d-5b20-46e9-b5c2-1fadefe24373.jpg)
+[![32인치tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5313697814183627-2489870d-5b20-46e9-b5c2-1fadefe24373.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6137079923&traceid=V0-153&itemId=11743774389&vendorItemId=79017678413)
 
 
 👍 [와사비망고 HD LED TV, 80cm(32인치), H320TA, 스탠드형, 자가설치 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6137079923&traceid=V0-153&itemId=11743774389&vendorItemId=79017678413) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 삼성전자 50인치 LED 비즈니스TV 4K UHD LH50BECHL 에너지효율 1등급, 스탠드형
 
-![32인치tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c125/d4659992bd85546391e92ff87e3391c3784b5d7806943ec195a19a4d0565.jpg)
+[![32인치tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c125/d4659992bd85546391e92ff87e3391c3784b5d7806943ec195a19a4d0565.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7581517751&traceid=V0-153&itemId=20014462901&vendorItemId=87111283223)
 
 
 👍 [삼성전자 50인치 LED 비즈니스TV 4K UHD LH50BECHL 에너지효율 1등급, 스탠드형 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7581517751&traceid=V0-153&itemId=20014462901&vendorItemId=87111283223) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 삼성패널 중소기업 81cm 32인치 HD LED TV IPTV 오늘출발, LE-321H, 스탠드형, 택배배송
 
-![32인치tv TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/404d/c261981c0e8cac64c6309f8df35c6d06f918d0472a6e42ddee9a0770a8e1.jpg)
+[![32인치tv TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/404d/c261981c0e8cac64c6309f8df35c6d06f918d0472a6e42ddee9a0770a8e1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621158806&traceid=V0-153&itemId=20205910703&vendorItemId=83364147477)
 
 
 👍 [삼성패널 중소기업 81cm 32인치 HD LED TV IPTV 오늘출발, LE-321H, 스탠드형, 택배배송 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621158806&traceid=V0-153&itemId=20205910703&vendorItemId=83364147477) 👌 

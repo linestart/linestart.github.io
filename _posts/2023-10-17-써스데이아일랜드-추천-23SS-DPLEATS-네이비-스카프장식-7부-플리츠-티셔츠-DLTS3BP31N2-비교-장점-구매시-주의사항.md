@@ -41,7 +41,7 @@ pin: true
 
 ## 1. 23SS [D-PLEATS] 네이비 스카프장식 7부 플리츠 티셔츠 DLTS3BP31N2
 
-![써스데이아일랜드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9091/ad20f71095a72c8d17c3c2d6a6950efc632fabf8c6b1ce9decf25f479223.jpg)
+[![써스데이아일랜드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9091/ad20f71095a72c8d17c3c2d6a6950efc632fabf8c6b1ce9decf25f479223.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7069516006&traceid=V0-153&itemId=17551747866&vendorItemId=84718614060)
 
 
 👍 [23SS [D-PLEATS] 네이비 스카프장식 7부 플리츠 티셔츠 DLTS3BP31N2 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7069516006&traceid=V0-153&itemId=17551747866&vendorItemId=84718614060) 👌 
@@ -59,7 +59,7 @@ pin: true
 
 ## 2. [써스데이아일랜드] [Thursday Island] 여성 풀오픈 맥시 솔리드 원피스(T20
 
-![써스데이아일랜드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e7b4/d3c48a5f6c6b57a3b74aa061e1748b4c22c6d4a0fead8234b9d1c7ab794f.jpg)
+[![써스데이아일랜드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e7b4/d3c48a5f6c6b57a3b74aa061e1748b4c22c6d4a0fead8234b9d1c7ab794f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6699496541&traceid=V0-153&itemId=15512642976&vendorItemId=87389289528)
 
 
 👍 [[써스데이아일랜드] [Thursday Island] 여성 풀오픈 맥시 솔리드 원피스(T20 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6699496541&traceid=V0-153&itemId=15512642976&vendorItemId=87389289528) 👌 
@@ -77,7 +77,7 @@ pin: true
 
 ## 3. 써스데이아일랜드 레이스 블라우스(T224MBL238W)(2118723)
 
-![써스데이아일랜드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/558b/33332ba11be58db10c78702f82e20eeb37342ae0abeb361813efceccac84.jpg)
+[![써스데이아일랜드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/558b/33332ba11be58db10c78702f82e20eeb37342ae0abeb361813efceccac84.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7563952420&traceid=V0-153&itemId=19933704081&vendorItemId=87033177387)
 
 
 👍 [써스데이아일랜드 레이스 블라우스(T224MBL238W)(2118723) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7563952420&traceid=V0-153&itemId=19933704081&vendorItemId=87033177387) 👌 
@@ -95,7 +95,7 @@ pin: true
 
 ## 4. [써스데이아일랜드] 롱 티어드 패턴 원피스 T228MOP238W(2180011)
 
-![써스데이아일랜드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ee0c/eab044e2254eaf1fb01d2e563360ca036d33367944a31872138b549e28ea.jpg)
+[![써스데이아일랜드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ee0c/eab044e2254eaf1fb01d2e563360ca036d33367944a31872138b549e28ea.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7585613047&traceid=V0-153&itemId=20033749256&vendorItemId=87130250533)
 
 
 👍 [[써스데이아일랜드] 롱 티어드 패턴 원피스 T228MOP238W(2180011) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7585613047&traceid=V0-153&itemId=20033749256&vendorItemId=87130250533) 👌 
@@ -113,7 +113,7 @@ pin: true
 
 ## 5. 수맘 수엠W 여성 긴팔 라운드넥 원피스 S012 허리밴딩롱ops
 
-![써스데이아일랜드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fc40/8be441ee393839bbf4d023788e30573361aff3461d7537e2f74270c7fdf2.jpg)
+[![써스데이아일랜드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fc40/8be441ee393839bbf4d023788e30573361aff3461d7537e2f74270c7fdf2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7101614112&traceid=V0-153&itemId=17728563341&vendorItemId=84893315720)
 
 
 👍 [수맘 수엠W 여성 긴팔 라운드넥 원피스 S012 허리밴딩롱ops <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7101614112&traceid=V0-153&itemId=17728563341&vendorItemId=84893315720) 👌 
@@ -131,7 +131,7 @@ pin: true
 
 ## 6. 아나콘다이너웨어 더핏 주니어 여학생 초등학교 청소년 속옷 브라 브래지어
 
-![써스데이아일랜드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7de2/b9ea0ab9e87296216144531fc8371c1eb198351bf90b6d457cd957780595.jpg)
+[![써스데이아일랜드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7de2/b9ea0ab9e87296216144531fc8371c1eb198351bf90b6d457cd957780595.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6171018949&traceid=V0-153&itemId=12045774624&vendorItemId=79317975641)
 
 
 👍 [아나콘다이너웨어 더핏 주니어 여학생 초등학교 청소년 속옷 브라 브래지어 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6171018949&traceid=V0-153&itemId=12045774624&vendorItemId=79317975641) 👌 
@@ -149,7 +149,7 @@ pin: true
 
 ## 7. [백화점매장 정품출고] 써스데이아일랜드 [여성]레이스 핀턱 블록 블라우스 (T236MBL136W)
 
-![써스데이아일랜드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/077b/904486321718db260961a8d342b99c88f9bc27fc6d481a6159104d360a3f.jpg)
+[![써스데이아일랜드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/077b/904486321718db260961a8d342b99c88f9bc27fc6d481a6159104d360a3f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7649130692&traceid=V0-153&itemId=20347659511&vendorItemId=87432233382)
 
 
 👍 [[백화점매장 정품출고] 써스데이아일랜드 [여성]레이스 핀턱 블록 블라우스 (T236MBL136W) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7649130692&traceid=V0-153&itemId=20347659511&vendorItemId=87432233382) 👌 
@@ -167,7 +167,7 @@ pin: true
 
 ## 8. 써스데이아일랜드 옵션 프릴 카라 T226MBL147W(2123326)
 
-![써스데이아일랜드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ea32/53652000f97e7153af5268c47915d33c9b20e5e74e3211ac800f27763769.jpg)
+[![써스데이아일랜드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ea32/53652000f97e7153af5268c47915d33c9b20e5e74e3211ac800f27763769.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7580688602&traceid=V0-153&itemId=20010797206&vendorItemId=87107739198)
 
 
 👍 [써스데이아일랜드 옵션 프릴 카라 T226MBL147W(2123326) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7580688602&traceid=V0-153&itemId=20010797206&vendorItemId=87107739198) 👌 
@@ -185,7 +185,7 @@ pin: true
 
 ## 9. 끌리시아 스탠드 스냅 버튼 벨트 골지 니트 롱 원피스 OS22
 
-![써스데이아일랜드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/07a6/dcb794d6830f5022ac67f83ed60dbf08f116879adc7415d52dd027661e46.jpg)
+[![써스데이아일랜드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/07a6/dcb794d6830f5022ac67f83ed60dbf08f116879adc7415d52dd027661e46.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2294957787&traceid=V0-153&itemId=3950759429&vendorItemId=71935184746)
 
 
 👍 [끌리시아 스탠드 스냅 버튼 벨트 골지 니트 롱 원피스 OS22 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2294957787&traceid=V0-153&itemId=3950759429&vendorItemId=71935184746) 👌 
@@ -203,7 +203,7 @@ pin: true
 
 ## 10. 써스데이아일랜드 허리밴딩 플라워 원피스 t228mop231
 
-![써스데이아일랜드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fe0a/49b3a8e38f928eaf5a5779c9d4c9b6fd7ea1986b55e4386bc5e8d9aae9b1.jpeg)
+[![써스데이아일랜드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fe0a/49b3a8e38f928eaf5a5779c9d4c9b6fd7ea1986b55e4386bc5e8d9aae9b1.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7570428335&traceid=V0-153&itemId=19963971048&vendorItemId=87062637129)
 
 
 👍 [써스데이아일랜드 허리밴딩 플라워 원피스 t228mop231 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7570428335&traceid=V0-153&itemId=19963971048&vendorItemId=87062637129) 👌 

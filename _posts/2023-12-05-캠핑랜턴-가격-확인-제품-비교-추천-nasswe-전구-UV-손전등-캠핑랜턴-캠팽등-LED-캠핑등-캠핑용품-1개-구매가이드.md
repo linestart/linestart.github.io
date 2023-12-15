@@ -19,7 +19,7 @@ pin: true
 
 ## 1. 전구 UV 손전등 캠핑랜턴 캠팽등 LED 캠핑등 캠핑용품, 1개
 
-![캠핑랜턴 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bbc3/f7752637fc35b59f9c71613a3229c1e04b3ae5d2d7a0b915e3e6374d37d5.jpg)
+[![캠핑랜턴 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bbc3/f7752637fc35b59f9c71613a3229c1e04b3ae5d2d7a0b915e3e6374d37d5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5263694741&traceid=V0-153&itemId=7484043378&vendorItemId=81551696156)
 
 
 👍 [전구 UV 손전등 캠핑랜턴 캠팽등 LED 캠핑등 캠핑용품, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5263694741&traceid=V0-153&itemId=7484043378&vendorItemId=81551696156) 👌 
@@ -37,7 +37,7 @@ pin: true
 
 ## 2. 충전 무선 방수 캠핑조명 휴대용 캠핑랜턴 걸이식 캠핑랜턴, 휴대용 충전식, 1개
 
-![캠핑랜턴 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9252/c84a3af84591c01bdbffa0e7e4ab77e336527542367aa2bcfc89330b5072.jpg)
+[![캠핑랜턴 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9252/c84a3af84591c01bdbffa0e7e4ab77e336527542367aa2bcfc89330b5072.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7425042824&traceid=V0-153&itemId=19271646652&vendorItemId=87078009400)
 
 
 👍 [충전 무선 방수 캠핑조명 휴대용 캠핑랜턴 걸이식 캠핑랜턴, 휴대용 충전식, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7425042824&traceid=V0-153&itemId=19271646652&vendorItemId=87078009400) 👌 
@@ -55,7 +55,7 @@ pin: true
 
 ## 3. 디프 LED 캠핑랜턴 감성 조명 휴대용 충전식 램프, 1개
 
-![캠핑랜턴 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5760/0159d0ab2d50934d48255d08f95ed55b800a7159575b988e8bad42f7b56e.jpg)
+[![캠핑랜턴 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5760/0159d0ab2d50934d48255d08f95ed55b800a7159575b988e8bad42f7b56e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7744801770&traceid=V0-153&itemId=20845994646&vendorItemId=87910848349)
 
 
 👍 [디프 LED 캠핑랜턴 감성 조명 휴대용 충전식 램프, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7744801770&traceid=V0-153&itemId=20845994646&vendorItemId=87910848349) 👌 
@@ -73,7 +73,7 @@ pin: true
 
 ## 4. 라이프란스 충전식 LED 캠핑 괴물랜턴, 1개
 
-![캠핑랜턴 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2022/05/20/11/4/b2d304d6-8c2d-4561-951a-2c3fbf8ffd9c.jpg)
+[![캠핑랜턴 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2022/05/20/11/4/b2d304d6-8c2d-4561-951a-2c3fbf8ffd9c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6437346335&traceid=V0-153&itemId=13919711429&vendorItemId=81753445435)
 
 
 👍 [라이프란스 충전식 LED 캠핑 괴물랜턴, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6437346335&traceid=V0-153&itemId=13919711429&vendorItemId=81753445435) 👌 
@@ -91,7 +91,7 @@ pin: true
 
 ## 5. 아재방 야외/캠핑 자바라 LED 스탠드 조명 18W, 1개, 블랙
 
-![캠핑랜턴 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f5ac/fcd72dfb537f5f630c3b3a6933061a9b311e55a775f6f1b11f8fdb971723.jpg)
+[![캠핑랜턴 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f5ac/fcd72dfb537f5f630c3b3a6933061a9b311e55a775f6f1b11f8fdb971723.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6868431123&traceid=V0-153&itemId=16422727876&vendorItemId=86078028135)
 
 
 👍 [아재방 야외/캠핑 자바라 LED 스탠드 조명 18W, 1개, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6868431123&traceid=V0-153&itemId=16422727876&vendorItemId=86078028135) 👌 
@@ -109,7 +109,7 @@ pin: true
 
 ## 6. 캠핑 랜턴, 아보카도그린(avocado green), 1개
 
-![캠핑랜턴 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/12ee/1643b4704d48c5802c441577c9256ecfff1f657c3481dfca214c7322574d.jpg)
+[![캠핑랜턴 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/12ee/1643b4704d48c5802c441577c9256ecfff1f657c3481dfca214c7322574d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7214380834&traceid=V0-153&itemId=18266007752&vendorItemId=85615557046)
 
 
 👍 [캠핑 랜턴, 아보카도그린(avocado green), 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7214380834&traceid=V0-153&itemId=18266007752&vendorItemId=85615557046) 👌 
@@ -127,7 +127,7 @@ pin: true
 
 ## 7. 브리츠 LED 감성 차박 충전식 캠핑 랜턴 LT100R, 블랙, 1개
 
-![캠핑랜턴 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b6ac/bc0ea2abd26f9fcb18b13d1cf38a2109ee132c2e7fa28f17570792bf22ed.jpg)
+[![캠핑랜턴 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b6ac/bc0ea2abd26f9fcb18b13d1cf38a2109ee132c2e7fa28f17570792bf22ed.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7104544171&traceid=V0-153&itemId=20329622659&vendorItemId=87414795261)
 
 
 👍 [브리츠 LED 감성 차박 충전식 캠핑 랜턴 LT100R, 블랙, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7104544171&traceid=V0-153&itemId=20329622659&vendorItemId=87414795261) 👌 
@@ -145,7 +145,7 @@ pin: true
 
 ## 8. 이노룩스 풀문 캠핑랜턴 ET-200, 노랑, 1개
 
-![캠핑랜턴 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/03/14/18/6/f2c12ad4-518a-4dc3-865d-13900e054ebe.jpg)
+[![캠핑랜턴 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/03/14/18/6/f2c12ad4-518a-4dc3-865d-13900e054ebe.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7197039407&traceid=V0-153&itemId=18183018467&vendorItemId=85331981372)
 
 
 👍 [이노룩스 풀문 캠핑랜턴 ET-200, 노랑, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7197039407&traceid=V0-153&itemId=18183018467&vendorItemId=85331981372) 👌 
@@ -163,7 +163,7 @@ pin: true
 
 ## 9. 캠핑 랜턴, 그레이(gray), 1개
 
-![캠핑랜턴 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9dbd/2d0737dae00a138c13b5b2c861e22d8ccf8d693882b3c22842f5adb044a1.jpg)
+[![캠핑랜턴 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9dbd/2d0737dae00a138c13b5b2c861e22d8ccf8d693882b3c22842f5adb044a1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7214380834&traceid=V0-153&itemId=18266007750&vendorItemId=85615557065)
 
 
 👍 [캠핑 랜턴, 그레이(gray), 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7214380834&traceid=V0-153&itemId=18266007750&vendorItemId=85615557065) 👌 
@@ -181,7 +181,7 @@ pin: true
 
 ## 10. 터치미 짱라이트 보조배터리 겸용 감성 캠핑 랜턴 10400mAh, 혼합색상, 1개
 
-![캠핑랜턴 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/93ae/33b673ef6517b75a259977b13416aa3786025bbd7444a3099ea7e85bc478.png)
+[![캠핑랜턴 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/93ae/33b673ef6517b75a259977b13416aa3786025bbd7444a3099ea7e85bc478.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4588210442&traceid=V0-153&itemId=5636461437&vendorItemId=85940812663)
 
 
 👍 [터치미 짱라이트 보조배터리 겸용 감성 캠핑 랜턴 10400mAh, 혼합색상, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4588210442&traceid=V0-153&itemId=5636461437&vendorItemId=85940812663) 👌 

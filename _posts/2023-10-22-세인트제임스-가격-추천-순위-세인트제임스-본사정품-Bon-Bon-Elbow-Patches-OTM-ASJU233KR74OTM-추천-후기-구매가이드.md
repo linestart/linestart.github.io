@@ -25,7 +25,7 @@ pin: true
 
 ## 1. 세인트제임스 [본사정품] Bon Bon Elbow Patches (OTM) ASJU233KR74-OTM
 
-![세인트제임스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ce56/435d31aa4d4f1ad7a5eda8d14ceb1ba7af36119de9132b38dc78d6d914c5.jpg)
+[![세인트제임스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ce56/435d31aa4d4f1ad7a5eda8d14ceb1ba7af36119de9132b38dc78d6d914c5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7540110905&traceid=V0-153&itemId=19819168810&vendorItemId=86941116356)
 
 
 👍 [세인트제임스 [본사정품] Bon Bon Elbow Patches (OTM) ASJU233KR74-OTM <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7540110905&traceid=V0-153&itemId=19819168810&vendorItemId=86941116356) 👌 
@@ -43,7 +43,7 @@ pin: true
 
 ## 2. 세인트제임스 [본사정품] Bon Bon Elbow Patches (001) ASJU233KR74-001
 
-![세인트제임스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f08f/0d031af213aa3c3a2da446e8607a170bd0b125926a6a2d53bbb63c88343d.jpg)
+[![세인트제임스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f08f/0d031af213aa3c3a2da446e8607a170bd0b125926a6a2d53bbb63c88343d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7544297712&traceid=V0-153&itemId=19839695571&vendorItemId=86941253113)
 
 
 👍 [세인트제임스 [본사정품] Bon Bon Elbow Patches (001) ASJU233KR74-001 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7544297712&traceid=V0-153&itemId=19839695571&vendorItemId=86941253113) 👌 
@@ -61,7 +61,7 @@ pin: true
 
 ## 3. [US POLO ASSN.]23FW COTTON 100 라운드넥 티셔츠 남성 3종
 
-![세인트제임스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/dbdc/549ffddd020a8519b42e11987299466625ed1c60f4dd9b89d35fb55623b0.jpg)
+[![세인트제임스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/dbdc/549ffddd020a8519b42e11987299466625ed1c60f4dd9b89d35fb55623b0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619394660&traceid=V0-153&itemId=20197434990&vendorItemId=87288318696)
 
 
 👍 [[US POLO ASSN.]23FW COTTON 100 라운드넥 티셔츠 남성 3종 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619394660&traceid=V0-153&itemId=20197434990&vendorItemId=87288318696) 👌 
@@ -79,7 +79,7 @@ pin: true
 
 ## 4. 세인트제임스 [본사정품] Bon Bon Elbow Patches (016) ASJU233KR74-016
 
-![세인트제임스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6e70/ab312b55f297b5063e542adbfd09147198f3ec23841854422ffc802b5551.jpg)
+[![세인트제임스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6e70/ab312b55f297b5063e542adbfd09147198f3ec23841854422ffc802b5551.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7515217548&traceid=V0-153&itemId=19699993346&vendorItemId=86941155123)
 
 
 👍 [세인트제임스 [본사정품] Bon Bon Elbow Patches (016) ASJU233KR74-016 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7515217548&traceid=V0-153&itemId=19699993346&vendorItemId=86941155123) 👌 
@@ -97,7 +97,7 @@ pin: true
 
 ## 5. 국내생산 면스판 목폴라 티셔츠 접는폴라 1+1 LW302
 
-![세인트제임스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1cb2/e36ed9f0eac24d92ed670f5e63989df0d435e3df03c6588c4f27c73ffb91.jpg)
+[![세인트제임스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1cb2/e36ed9f0eac24d92ed670f5e63989df0d435e3df03c6588c4f27c73ffb91.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4400663509&traceid=V0-153&itemId=5226796385&vendorItemId=72535876298)
 
 
 👍 [국내생산 면스판 목폴라 티셔츠 접는폴라 1+1 LW302 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4400663509&traceid=V0-153&itemId=5226796385&vendorItemId=72535876298) 👌 
@@ -115,7 +115,7 @@ pin: true
 
 ## 6. 국내생산 면스판 반폴라 티셔츠 LW301M
 
-![세인트제임스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c97e/2928eb13ecf784d3ff2883773e577f031d19ff0d4e598878f5866c6e441c.jpg)
+[![세인트제임스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c97e/2928eb13ecf784d3ff2883773e577f031d19ff0d4e598878f5866c6e441c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2280478090&traceid=V0-153&itemId=3916373534&vendorItemId=71900918287)
 
 
 👍 [국내생산 면스판 반폴라 티셔츠 LW301M <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2280478090&traceid=V0-153&itemId=3916373534&vendorItemId=71900918287) 👌 
@@ -133,7 +133,7 @@ pin: true
 
 ## 7. 세인트제임스 [본사정품] Bon Bon Elbow Patches (GRY) ASJU233KR74-GRY
 
-![세인트제임스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/dfa5/3188e97851fe1fd2528fb102e06f11e01f42b110859510415766e92e38a5.jpg)
+[![세인트제임스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/dfa5/3188e97851fe1fd2528fb102e06f11e01f42b110859510415766e92e38a5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7540110303&traceid=V0-153&itemId=19819166260&vendorItemId=86941140552)
 
 
 👍 [세인트제임스 [본사정품] Bon Bon Elbow Patches (GRY) ASJU233KR74-GRY <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7540110303&traceid=V0-153&itemId=19819166260&vendorItemId=86941140552) 👌 
@@ -151,7 +151,7 @@ pin: true
 
 ## 8. 세인트제임스 GUILDO U A(ECRU) 남녀공용 티셔츠 커플티 데일리룩
 
-![세인트제임스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/075f/70bfe83fad5161cb59178c94f2172497e5836e8e5dddca8f1ffbdc76cfbe.jpg)
+[![세인트제임스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/075f/70bfe83fad5161cb59178c94f2172497e5836e8e5dddca8f1ffbdc76cfbe.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7144198995&traceid=V0-153&itemId=17946678258&vendorItemId=85104466495)
 
 
 👍 [세인트제임스 GUILDO U A(ECRU) 남녀공용 티셔츠 커플티 데일리룩 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7144198995&traceid=V0-153&itemId=17946678258&vendorItemId=85104466495) 👌 
@@ -169,7 +169,7 @@ pin: true
 
 ## 9. CUTE CAT 반팔티 (SBSNH-1167)
 
-![세인트제임스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7758/ad9708b9aada135bd07c6ed5f234f2b03f7c62add207919f3f9a00d659b9.jpg)
+[![세인트제임스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7758/ad9708b9aada135bd07c6ed5f234f2b03f7c62add207919f3f9a00d659b9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7515478532&traceid=V0-153&itemId=19701175721&vendorItemId=86805892452)
 
 
 👍 [CUTE CAT 반팔티 (SBSNH-1167) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7515478532&traceid=V0-153&itemId=19701175721&vendorItemId=86805892452) 👌 
@@ -187,7 +187,7 @@ pin: true
 
 ## 10. 세인트제임스 [본사정품] Minquiers 18 (0MM) ASJM2314326-0MM
 
-![세인트제임스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d557/53fc9ff8d9a453c36805db0969b2521b2ab3612cbb279d70e12246ffc66d.jpg)
+[![세인트제임스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d557/53fc9ff8d9a453c36805db0969b2521b2ab3612cbb279d70e12246ffc66d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7225286517&traceid=V0-153&itemId=18320103899&vendorItemId=87440177904)
 
 
 👍 [세인트제임스 [본사정품] Minquiers 18 (0MM) ASJM2314326-0MM <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7225286517&traceid=V0-153&itemId=18320103899&vendorItemId=87440177904) 👌 

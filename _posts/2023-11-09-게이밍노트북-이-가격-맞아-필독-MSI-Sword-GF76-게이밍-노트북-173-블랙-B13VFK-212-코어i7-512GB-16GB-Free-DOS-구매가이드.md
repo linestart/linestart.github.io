@@ -22,7 +22,7 @@ pin: true
 
 ## 1. MSI Sword GF76 게이밍 노트북 17.3, 블랙, B13VFK 212, 코어i7, 512GB, 16GB, Free DOS
 
-![게이밍노트북 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/532201558075832-54c9708d-90ca-4954-9772-43073d7380bb.jpg)
+[![게이밍노트북 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/532201558075832-54c9708d-90ca-4954-9772-43073d7380bb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7623524215&traceid=V0-153&itemId=18065638954&vendorItemId=85219260795)
 
 
 👍 [MSI Sword GF76 게이밍 노트북 17.3, 블랙, B13VFK 212, 코어i7, 512GB, 16GB, Free DOS <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7623524215&traceid=V0-153&itemId=18065638954&vendorItemId=85219260795) 👌 
@@ -40,7 +40,7 @@ pin: true
 
 ## 2. HP 2023 빅터스 15 지포스 RTX 4050, Mica Silver, 코어i5, 512GB, 16GB, Free DOS, 15-fa1108TX
 
-![게이밍노트북 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4032731915319711-84471558-54f4-414a-acc0-52dbd043257e.jpg)
+[![게이밍노트북 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4032731915319711-84471558-54f4-414a-acc0-52dbd043257e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7420594832&traceid=V0-153&itemId=19248300034&vendorItemId=86364111900)
 
 
 👍 [HP 2023 빅터스 15 지포스 RTX 4050, Mica Silver, 코어i5, 512GB, 16GB, Free DOS, 15-fa1108TX <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7420594832&traceid=V0-153&itemId=19248300034&vendorItemId=86364111900) 👌 
@@ -58,7 +58,7 @@ pin: true
 
 ## 3. LG그램15 코어i5 8세대 15Z980 (16G 512G 윈10 화이트), i5, 화이트
 
-![게이밍노트북 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/37ad/686dfdfc64052c5569685a8bc76ae5ff3baac78339c3f5a2eebb43405625.jpg)
+[![게이밍노트북 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/37ad/686dfdfc64052c5569685a8bc76ae5ff3baac78339c3f5a2eebb43405625.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7699103864&traceid=V0-153&itemId=20608635385&vendorItemId=87683181200)
 
 
 👍 [LG그램15 코어i5 8세대 15Z980 (16G 512G 윈10 화이트), i5, 화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7699103864&traceid=V0-153&itemId=20608635385&vendorItemId=87683181200) 👌 
@@ -76,7 +76,7 @@ pin: true
 
 ## 4. 에이수스 2023 TUF Gaming F17 지포스 RTX 4060, Mecha Gray, 코어i7, 512GB, 8GB, Free DOS, FX707ZV4-HX016
 
-![게이밍노트북 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4785290476513953-0dc739eb-9499-4eaa-900d-d398915ccc7a.jpg)
+[![게이밍노트북 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4785290476513953-0dc739eb-9499-4eaa-900d-d398915ccc7a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7170642560&traceid=V0-153&itemId=18064302491&vendorItemId=85217964092)
 
 
 👍 [에이수스 2023 TUF Gaming F17 지포스 RTX 4060, Mecha Gray, 코어i7, 512GB, 8GB, Free DOS, FX707ZV4-HX016 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7170642560&traceid=V0-153&itemId=18064302491&vendorItemId=85217964092) 👌 
@@ -94,7 +94,7 @@ pin: true
 
 ## 5. 베이직스 2023 베이직북S 10.1, White, 셀러론, 128GB, 8GB, WIN11 Pro, BB1022FW
 
-![게이밍노트북 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/426680547861361-1a9f80aa-f1b5-4255-8813-66d8435a7ee6.jpg)
+[![게이밍노트북 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/426680547861361-1a9f80aa-f1b5-4255-8813-66d8435a7ee6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7250974223&traceid=V0-153&itemId=18445032975&vendorItemId=85586013127)
 
 
 👍 [베이직스 2023 베이직북S 10.1, White, 셀러론, 128GB, 8GB, WIN11 Pro, BB1022FW <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7250974223&traceid=V0-153&itemId=18445032975&vendorItemId=85586013127) 👌 
@@ -112,7 +112,7 @@ pin: true
 
 ## 6. LG그램15 코어i5 8세대 15Z980 (16G 256G 윈10 화이트), i5, 화이트
 
-![게이밍노트북 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/37ad/686dfdfc64052c5569685a8bc76ae5ff3baac78339c3f5a2eebb43405625.jpg)
+[![게이밍노트북 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/37ad/686dfdfc64052c5569685a8bc76ae5ff3baac78339c3f5a2eebb43405625.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7699103694&traceid=V0-153&itemId=20608634283&vendorItemId=87683180672)
 
 
 👍 [LG그램15 코어i5 8세대 15Z980 (16G 256G 윈10 화이트), i5, 화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7699103694&traceid=V0-153&itemId=20608634283&vendorItemId=87683180672) 👌 
@@ -130,7 +130,7 @@ pin: true
 
 ## 7. MSI 2023 GF63 씬 12VE 15.6 지포스 RTX 4050, 블랙, 코어i7, 512GB, 8GB, Free DOS, MS-16R
 
-![게이밍노트북 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1553652968279662-76c198dd-f79f-43a0-9580-69b30536b869.jpg)
+[![게이밍노트북 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1553652968279662-76c198dd-f79f-43a0-9580-69b30536b869.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7183655444&traceid=V0-153&itemId=18122373216&vendorItemId=85273455423)
 
 
 👍 [MSI 2023 GF63 씬 12VE 15.6 지포스 RTX 4050, 블랙, 코어i7, 512GB, 8GB, Free DOS, MS-16R <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7183655444&traceid=V0-153&itemId=18122373216&vendorItemId=85273455423) 👌 
@@ -148,7 +148,7 @@ pin: true
 
 ## 8. MSI 2023 Cyborg 15 A12VE, 블랙, 코어i7, 512GB, 8GB, WIN11 Home, MS-15K
 
-![게이밍노트북 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/03/20/18/2/5e5bacf1-e236-412b-9866-bd087a68187c.jpg)
+[![게이밍노트북 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/03/20/18/2/5e5bacf1-e236-412b-9866-bd087a68187c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7210596115&traceid=V0-153&itemId=19726040636&vendorItemId=86822255229)
 
 
 👍 [MSI 2023 Cyborg 15 A12VE, 블랙, 코어i7, 512GB, 8GB, WIN11 Home, MS-15K <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7210596115&traceid=V0-153&itemId=19726040636&vendorItemId=86822255229) 👌 
@@ -166,7 +166,7 @@ pin: true
 
 ## 9. 삼성 NT551EBE 15.6인치 인텔 8세대 Core-i7 SSD 탑재 윈도우11설치 중고노트북, 메탈릭 티탄, 코어i7, 1012GB, 16GB, WIN11 Pro
 
-![게이밍노트북 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e366/e9cd3b20341d835843dca903414e4d387476c5d411514b3a8ff566ac4513.jpg)
+[![게이밍노트북 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e366/e9cd3b20341d835843dca903414e4d387476c5d411514b3a8ff566ac4513.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6545083239&traceid=V0-153&itemId=16201961116&vendorItemId=83396570860)
 
 
 👍 [삼성 NT551EBE 15.6인치 인텔 8세대 Core-i7 SSD 탑재 윈도우11설치 중고노트북, 메탈릭 티탄, 코어i7, 1012GB, 16GB, WIN11 Pro <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6545083239&traceid=V0-153&itemId=16201961116&vendorItemId=83396570860) 👌 
@@ -184,7 +184,7 @@ pin: true
 
 ## 10. HP 2023 오멘 16, Mica Silver, 라이젠7, 512GB, 16GB, WIN11 Home, 16-n0094ax
 
-![게이밍노트북 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/whnqbqcj/19c7901c45a5400ca7f8d45c609b3fd7.jpg)
+[![게이밍노트북 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/whnqbqcj/19c7901c45a5400ca7f8d45c609b3fd7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7225307999&traceid=V0-153&itemId=18320197094&vendorItemId=85464975577)
 
 
 👍 [HP 2023 오멘 16, Mica Silver, 라이젠7, 512GB, 16GB, WIN11 Home, 16-n0094ax <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7225307999&traceid=V0-153&itemId=18320197094&vendorItemId=85464975577) 👌 

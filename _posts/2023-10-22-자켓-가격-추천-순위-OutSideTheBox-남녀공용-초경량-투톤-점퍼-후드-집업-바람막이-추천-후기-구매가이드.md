@@ -43,7 +43,7 @@ pin: true
 
 ## 1. OutSideTheBox 남녀공용 초경량 투톤 점퍼 후드 집업 바람막이
 
-![자켓 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/08c8/f5ef10bae1981d7a3d8473c85f98e97f15c6cb5fa9b5bed1bc44b8a34a8e.jpg)
+[![자켓 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/08c8/f5ef10bae1981d7a3d8473c85f98e97f15c6cb5fa9b5bed1bc44b8a34a8e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7663715863&traceid=V0-153&itemId=20424441648&vendorItemId=87378433798)
 
 
 👍 [OutSideTheBox 남녀공용 초경량 투톤 점퍼 후드 집업 바람막이 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7663715863&traceid=V0-153&itemId=20424441648&vendorItemId=87378433798) 👌 
@@ -61,7 +61,7 @@ pin: true
 
 ## 2. ANYOU 여성코트 하프 코트 재킷 정장 자켓 하프 트렌치코트
 
-![자켓 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/23e2/7a45234df7e33b1aee32a8920f4879f7b0ad7106cc045f643764aea1ed43.jpg)
+[![자켓 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/23e2/7a45234df7e33b1aee32a8920f4879f7b0ad7106cc045f643764aea1ed43.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7501363246&traceid=V0-153&itemId=19636799305&vendorItemId=86743093935)
 
 
 👍 [ANYOU 여성코트 하프 코트 재킷 정장 자켓 하프 트렌치코트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7501363246&traceid=V0-153&itemId=19636799305&vendorItemId=86743093935) 👌 
@@ -79,7 +79,7 @@ pin: true
 
 ## 3. ANYOU 여성 가을 긴팔 라운드 트위드자켓 소프트 투라인버튼 레저 트위드자켓
 
-![자켓 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bb93/b99bf31f0f0e4e84e3db1bc726e506b54a9a87634ba04003be6dccd9820f.jpg)
+[![자켓 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bb93/b99bf31f0f0e4e84e3db1bc726e506b54a9a87634ba04003be6dccd9820f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7527095167&traceid=V0-153&itemId=19754688322&vendorItemId=87417391994)
 
 
 👍 [ANYOU 여성 가을 긴팔 라운드 트위드자켓 소프트 투라인버튼 레저 트위드자켓 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7527095167&traceid=V0-153&itemId=19754688322&vendorItemId=87417391994) 👌 
@@ -97,7 +97,7 @@ pin: true
 
 ## 4. UPPERCUT 여성 라운드넥 클래식 긴팔 트위드 자켓
 
-![자켓 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f3f1/194e2894021e3a8be35101bde9f314fc7dcce07628f78bfb9f3b50f442c0.jpg)
+[![자켓 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f3f1/194e2894021e3a8be35101bde9f314fc7dcce07628f78bfb9f3b50f442c0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7462657249&traceid=V0-153&itemId=19454867537&vendorItemId=87247181833)
 
 
 👍 [UPPERCUT 여성 라운드넥 클래식 긴팔 트위드 자켓 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7462657249&traceid=V0-153&itemId=19454867537&vendorItemId=87247181833) 👌 
@@ -115,7 +115,7 @@ pin: true
 
 ## 5. OutSideTheBox 남녀공용 초경량 투톤 점퍼 후드 집업 바람막이
 
-![자켓 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/148b/994345ea61750973ed4427482444fc4c62ee1b8b5e7f15c57fbe1961e2d1.jpg)
+[![자켓 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/148b/994345ea61750973ed4427482444fc4c62ee1b8b5e7f15c57fbe1961e2d1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7663715863&traceid=V0-153&itemId=20424441643&vendorItemId=87378433802)
 
 
 👍 [OutSideTheBox 남녀공용 초경량 투톤 점퍼 후드 집업 바람막이 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7663715863&traceid=V0-153&itemId=20424441643&vendorItemId=87378433802) 👌 
@@ -133,7 +133,7 @@ pin: true
 
 ## 6. 제타21 남성용 데일리 미니멀 오버핏 자켓 [5085]
 
-![자켓 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9645/13ef725e9f2e3b94623e7129ca355b711f90f2e5725b958104c28e97d5bc.jpg)
+[![자켓 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9645/13ef725e9f2e3b94623e7129ca355b711f90f2e5725b958104c28e97d5bc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6371052156&traceid=V0-153&itemId=13494667151&vendorItemId=82949126259)
 
 
 👍 [제타21 남성용 데일리 미니멀 오버핏 자켓 [5085] <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6371052156&traceid=V0-153&itemId=13494667151&vendorItemId=82949126259) 👌 
@@ -151,7 +151,7 @@ pin: true
 
 ## 7. 남성용 봄 루즈한 캐주얼 가벼운 자켓
 
-![자켓 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/xv61kfvr/450de2cde1e147d0bfd36b66ae4381ba.jpg)
+[![자켓 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/xv61kfvr/450de2cde1e147d0bfd36b66ae4381ba.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6348371035&traceid=V0-153&itemId=13347958082&vendorItemId=80603135630)
 
 
 👍 [남성용 봄 루즈한 캐주얼 가벼운 자켓 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6348371035&traceid=V0-153&itemId=13347958082&vendorItemId=80603135630) 👌 
@@ -169,7 +169,7 @@ pin: true
 
 ## 8. ELLE PARIS 여성 스텐다드핏 데일리 블레이져 자켓
 
-![자켓 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5550055239498973-41342892-2857-4a49-871c-8bd630c1a440.jpg)
+[![자켓 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5550055239498973-41342892-2857-4a49-871c-8bd630c1a440.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6673869082&traceid=V0-153&itemId=15364397460&vendorItemId=82584580477)
 
 
 👍 [ELLE PARIS 여성 스텐다드핏 데일리 블레이져 자켓 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6673869082&traceid=V0-153&itemId=15364397460&vendorItemId=82584580477) 👌 
@@ -187,7 +187,7 @@ pin: true
 
 ## 9. 오버핏 후드 탈부착 워싱 데님 청 자켓(2color)
 
-![자켓 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bede/c7b73d732004b2084d73a118d0ce07d2af053ca0bb4e9b8dadf11c255ab5.jpg)
+[![자켓 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bede/c7b73d732004b2084d73a118d0ce07d2af053ca0bb4e9b8dadf11c255ab5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4940683854&traceid=V0-153&itemId=6508682046&vendorItemId=73802860667)
 
 
 👍 [오버핏 후드 탈부착 워싱 데님 청 자켓(2color) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4940683854&traceid=V0-153&itemId=6508682046&vendorItemId=73802860667) 👌 
@@ -205,7 +205,7 @@ pin: true
 
 ## 10. 포켓 자켓 (MDJK604TE)
 
-![자켓 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a655/88b99ea8a20db6cc1240f8134dbf281465fc7bc0006e84ca11e43c604c81.jpg)
+[![자켓 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a655/88b99ea8a20db6cc1240f8134dbf281465fc7bc0006e84ca11e43c604c81.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1172393830&traceid=V0-153&itemId=2150550941&vendorItemId=85262536790)
 
 
 👍 [포켓 자켓 (MDJK604TE) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1172393830&traceid=V0-153&itemId=2150550941&vendorItemId=85262536790) 👌 

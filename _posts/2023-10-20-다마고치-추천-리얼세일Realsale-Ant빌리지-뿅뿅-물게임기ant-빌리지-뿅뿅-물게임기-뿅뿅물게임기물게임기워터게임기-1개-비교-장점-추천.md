@@ -32,7 +32,7 @@ pin: true
 
 ## 1. 리얼세일(Realsale) Ant빌리지 뿅뿅 물게임기/ant 빌리지 뿅뿅 물게임기/ 뿅뿅물게임기/물게임기/워터게임기, 1개
 
-![다마고치 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6e46/c591786125d39907f69826d0dba4cd46b0c309e48d5d7cd9674cc2408e11.jpg)
+[![다마고치 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6e46/c591786125d39907f69826d0dba4cd46b0c309e48d5d7cd9674cc2408e11.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7252568639&traceid=V0-153&itemId=18452057438&vendorItemId=85592809025)
 
 
 👍 [리얼세일(Realsale) Ant빌리지 뿅뿅 물게임기/ant 빌리지 뿅뿅 물게임기/ 뿅뿅물게임기/물게임기/워터게임기, 1개 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7252568639&traceid=V0-153&itemId=18452057438&vendorItemId=85592809025) 👌 
@@ -50,7 +50,7 @@ pin: true
 
 ## 2. 반다이 다마고치 오리지널, 아이스크림
 
-![다마고치 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/10/13/13/1/34ad638f-78c6-48cc-a16f-7c49fc0c37ba.jpg)
+[![다마고치 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/10/13/13/1/34ad638f-78c6-48cc-a16f-7c49fc0c37ba.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6853491497&traceid=V0-153&itemId=16336225428&vendorItemId=83528133279)
 
 
 👍 [반다이 다마고치 오리지널, 아이스크림 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6853491497&traceid=V0-153&itemId=16336225428&vendorItemId=83528133279) 👌 
@@ -68,7 +68,7 @@ pin: true
 
 ## 3. 말랑쁘니 플러스, 퍼플
 
-![다마고치 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/sw2cnypd/40f6f749d3724720b51cdc642295f7cd.jpg)
+[![다마고치 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/sw2cnypd/40f6f749d3724720b51cdc642295f7cd.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7268039971&traceid=V0-153&itemId=16766746782&vendorItemId=83948041593)
 
 
 👍 [말랑쁘니 플러스, 퍼플 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7268039971&traceid=V0-153&itemId=16766746782&vendorItemId=83948041593) 👌 
@@ -86,7 +86,7 @@ pin: true
 
 ## 4. 반다이 다마고치 스마트 게임기, 코랄핑크
 
-![다마고치 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/12/15/16/7/7e8d16a7-0062-41ce-bd4d-bf168a115777.jpg)
+[![다마고치 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/12/15/16/7/7e8d16a7-0062-41ce-bd4d-bf168a115777.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6237634362&traceid=V0-153&itemId=12571482536&vendorItemId=79839643051)
 
 
 👍 [반다이 다마고치 스마트 게임기, 코랄핑크 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6237634362&traceid=V0-153&itemId=12571482536&vendorItemId=79839643051) 👌 
@@ -104,7 +104,7 @@ pin: true
 
 ## 5. 빔프로젝트 어린이완구 손전등장난감 공룡세계 동물 두뇌발달 그림자놀이 조기교육 [어린이집선물 그림80종], 핑크
 
-![다마고치 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/70ba/a840f2cb860394da133a94a2eae78d4e2cf2c1b4171ed80d21014f71b6d2.png)
+[![다마고치 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/70ba/a840f2cb860394da133a94a2eae78d4e2cf2c1b4171ed80d21014f71b6d2.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7307275086&traceid=V0-153&itemId=18712286230&vendorItemId=86253787511)
 
 
 👍 [빔프로젝트 어린이완구 손전등장난감 공룡세계 동물 두뇌발달 그림자놀이 조기교육 [어린이집선물 그림80종], 핑크 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7307275086&traceid=V0-153&itemId=18712286230&vendorItemId=86253787511) 👌 
@@ -122,7 +122,7 @@ pin: true
 
 ## 6. 크앤비 999레벨 5세대 푸쉬팝 푸시팝 게임기, 토끼게임기
 
-![다마고치 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/27e5/256f8cbb88ebf4a31b8d922644e72d0e1b91cd10aef2a9507e416f9563e2.jpg)
+[![다마고치 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/27e5/256f8cbb88ebf4a31b8d922644e72d0e1b91cd10aef2a9507e416f9563e2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7599962230&traceid=V0-153&itemId=20102074805&vendorItemId=87185420153)
 
 
 👍 [크앤비 999레벨 5세대 푸쉬팝 푸시팝 게임기, 토끼게임기 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7599962230&traceid=V0-153&itemId=20102074805&vendorItemId=87185420153) 👌 
@@ -140,7 +140,7 @@ pin: true
 
 ## 7. 반다이 다마고치 오리지널 드리미, 혼합색상
 
-![다마고치 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/10/17/16/2/c13a7c66-2624-495f-9763-59f6226d6d0b.jpg)
+[![다마고치 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/10/17/16/2/c13a7c66-2624-495f-9763-59f6226d6d0b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6848324655&traceid=V0-153&itemId=16304823020&vendorItemId=83497118157)
 
 
 👍 [반다이 다마고치 오리지널 드리미, 혼합색상 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6848324655&traceid=V0-153&itemId=16304823020&vendorItemId=83497118157) 👌 
@@ -158,7 +158,7 @@ pin: true
 
 ## 8. 반다이 다마고치 오리지널 라이트닝, 혼합색상
 
-![다마고치 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/10/17/16/4/f011513b-17af-4d5f-9975-7ae32073af79.jpg)
+[![다마고치 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/10/17/16/4/f011513b-17af-4d5f-9975-7ae32073af79.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6536902490&traceid=V0-153&itemId=16304778895&vendorItemId=83497074581)
 
 
 👍 [반다이 다마고치 오리지널 라이트닝, 혼합색상 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6536902490&traceid=V0-153&itemId=16304778895&vendorItemId=83497074581) 👌 
@@ -176,7 +176,7 @@ pin: true
 
 ## 9. [마인드플레이] 아이스브레이킹 대화게임 젬톡 오리지날(개정판), 단품
 
-![다마고치 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/abc1/434a37d45e6358eea1015d346fc1d0c7eb29684899c542f853e34f00e5eb.jpg)
+[![다마고치 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/abc1/434a37d45e6358eea1015d346fc1d0c7eb29684899c542f853e34f00e5eb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7148475730&traceid=V0-153&itemId=17966874941&vendorItemId=85715576627)
 
 
 👍 [[마인드플레이] 아이스브레이킹 대화게임 젬톡 오리지날(개정판), 단품 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7148475730&traceid=V0-153&itemId=17966874941&vendorItemId=85715576627) 👌 
@@ -194,7 +194,7 @@ pin: true
 
 ## 10. 반다이 죠르디 다마고치, 혼합색상
 
-![다마고치 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/r6epb1xl/d01265d222f145d38e8b065f0d1c7a9b.png)
+[![다마고치 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/r6epb1xl/d01265d222f145d38e8b065f0d1c7a9b.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5682602570&traceid=V0-153&itemId=9389948249&vendorItemId=76674994258)
 
 
 👍 [반다이 죠르디 다마고치, 혼합색상 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5682602570&traceid=V0-153&itemId=9389948249&vendorItemId=76674994258) 👌 

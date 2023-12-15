@@ -41,7 +41,7 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 ## 1. 아이리버 블루투스 IN 앤 OUT FM라디오 스피커 미니 오디오 CD플레이어, white, IAB30
 
-![cd플레이어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1660435099281864-d411b889-793e-4d23-ae6e-d32e44e01771.jpg)
+[![cd플레이어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1660435099281864-d411b889-793e-4d23-ae6e-d32e44e01771.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6400820937&traceid=V0-153&itemId=13684351426&vendorItemId=80936041461)
 
 
 👍 [아이리버 블루투스 IN 앤 OUT FM라디오 스피커 미니 오디오 CD플레이어, white, IAB30 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6400820937&traceid=V0-153&itemId=13684351426&vendorItemId=80936041461) 👌 
@@ -59,7 +59,7 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 ## 2. 에듀플레이어 벽걸이 CD플레이어, NEW EA30, 화이트
 
-![cd플레이어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4332043739311754-9a5d9f6d-aaca-4e11-a6ec-c6779aa6fc1a.jpg)
+[![cd플레이어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4332043739311754-9a5d9f6d-aaca-4e11-a6ec-c6779aa6fc1a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7246197613&traceid=V0-153&itemId=18422102540&vendorItemId=3229411797)
 
 
 👍 [에듀플레이어 벽걸이 CD플레이어, NEW EA30, 화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7246197613&traceid=V0-153&itemId=18422102540&vendorItemId=3229411797) 👌 
@@ -77,7 +77,7 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 ## 3. 에듀플레이어 벽걸이 CD 플레이어, NEW EA10, 화이트
 
-![cd플레이어 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3234487405115355-5f993208-1ad9-4162-be6f-72f239609cbe.jpg)
+[![cd플레이어 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3234487405115355-5f993208-1ad9-4162-be6f-72f239609cbe.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63315952&traceid=V0-153&itemId=215655513&vendorItemId=3519371126)
 
 
 👍 [에듀플레이어 벽걸이 CD 플레이어, NEW EA10, 화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63315952&traceid=V0-153&itemId=215655513&vendorItemId=3519371126) 👌 
@@ -95,7 +95,7 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 ## 4. 아남 포터블 CD 플레이어, A-87, 레드
 
-![cd플레이어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/07/23/9/5/9393e338-7f19-46d1-8565-97df272d3663.jpg)
+[![cd플레이어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/07/23/9/5/9393e338-7f19-46d1-8565-97df272d3663.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1861682869&traceid=V0-153&itemId=3164665070&vendorItemId=71152209918)
 
 
 👍 [아남 포터블 CD 플레이어, A-87, 레드 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1861682869&traceid=V0-153&itemId=3164665070&vendorItemId=71152209918) 👌 
@@ -113,7 +113,7 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 ## 5. 림스테일 USB 3.0 CD / DVD RW 멀티 외장형 ODD + C타입 젠더 세트, LM-19(WH)
 
-![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1165335741251223-2cb11285-c3a5-48cd-982e-d143fa5bd098.jpg)
+[![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1165335741251223-2cb11285-c3a5-48cd-982e-d143fa5bd098.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5492885736&traceid=V0-153&itemId=14999840873&vendorItemId=82964361599)
 
 
 👍 [림스테일 USB 3.0 CD / DVD RW 멀티 외장형 ODD + C타입 젠더 세트, LM-19(WH) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5492885736&traceid=V0-153&itemId=14999840873&vendorItemId=82964361599) 👌 
@@ -131,7 +131,7 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 ## 6. 아이리버 카세트 CD플레이어, IAT60, WHITE
 
-![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/10/13/15/0/75efbe4e-2bb7-4645-883d-be6243e54658.jpg)
+[![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/10/13/15/0/75efbe4e-2bb7-4645-883d-be6243e54658.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7650726379&traceid=V0-153&itemId=20355834968&vendorItemId=87440101984)
 
 
 👍 [아이리버 카세트 CD플레이어, IAT60, WHITE <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7650726379&traceid=V0-153&itemId=20355834968&vendorItemId=87440101984) 👌 
@@ -149,7 +149,7 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 ## 7. 인비오 휴대폰 무선충전 시계 라디오 CD플레이어, IV-CD200W, 인비오 IV-CD200W 화이트
 
-![cd플레이어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/xkqgptq5/a7fddc0187dd41c4b318bd320a40124d.jpg)
+[![cd플레이어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/xkqgptq5/a7fddc0187dd41c4b318bd320a40124d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6132927898&traceid=V0-153&itemId=11707998235&vendorItemId=73584479760)
 
 
 👍 [인비오 휴대폰 무선충전 시계 라디오 CD플레이어, IV-CD200W, 인비오 IV-CD200W 화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6132927898&traceid=V0-153&itemId=11707998235&vendorItemId=73584479760) 👌 
@@ -167,7 +167,7 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 ## 8. 인비오 블루투스 CD 플레이어, IV-CD100
 
-![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/05/14/11/0/b575b86e-1701-4e72-8506-50336cfd9465.jpg)
+[![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/05/14/11/0/b575b86e-1701-4e72-8506-50336cfd9465.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1596366339&traceid=V0-153&itemId=2727333325&vendorItemId=70717520442)
 
 
 👍 [인비오 블루투스 CD 플레이어, IV-CD100 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1596366339&traceid=V0-153&itemId=2727333325&vendorItemId=70717520442) 👌 
@@ -185,7 +185,7 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 ## 9. 아이리버 미니언즈 포터블 DVD플레이어, IMD-F10
 
-![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2638/435e0acb74e76c90fa866f300f0ada1e5e7aaeec613a8d7fecef0189d98b.jpg)
+[![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2638/435e0acb74e76c90fa866f300f0ada1e5e7aaeec613a8d7fecef0189d98b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6570014921&traceid=V0-153&itemId=14744661672&vendorItemId=85982947671)
 
 
 👍 [아이리버 미니언즈 포터블 DVD플레이어, IMD-F10 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6570014921&traceid=V0-153&itemId=14744661672&vendorItemId=85982947671) 👌 
@@ -203,7 +203,7 @@ CD플레이어는 뛰어난 음질과 편리한 사용성으로, 많은 사람�
 
 ## 10. 코비 댕댕이 블루투스 CD플레이어, BTCD10, 화이트
 
-![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2019/05/24/10/9/402f5107-5541-48db-bb05-de4f29be9294.jpg)
+[![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2019/05/24/10/9/402f5107-5541-48db-bb05-de4f29be9294.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=229444667&traceid=V0-153&itemId=727541488&vendorItemId=4839984205)
 
 
 👍 [코비 댕댕이 블루투스 CD플레이어, BTCD10, 화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=229444667&traceid=V0-153&itemId=727541488&vendorItemId=4839984205) 👌 

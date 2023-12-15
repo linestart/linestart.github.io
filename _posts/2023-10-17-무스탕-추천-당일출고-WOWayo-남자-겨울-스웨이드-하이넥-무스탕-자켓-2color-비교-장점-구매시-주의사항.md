@@ -44,7 +44,7 @@ pin: true
 
 ## 1. [당일출고] WOWayo 남자 겨울 스웨이드 하이넥 무스탕 자켓 2color
 
-![무스탕 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9b31/62c96285f5c0c274b4a1a3422d1cc5ab19ced8ca1a7329ee6b04ea195f7d.png)
+[![무스탕 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9b31/62c96285f5c0c274b4a1a3422d1cc5ab19ced8ca1a7329ee6b04ea195f7d.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=340351515&traceid=V0-153&itemId=1083758351&vendorItemId=5588144493)
 
 
 👍 [[당일출고] WOWayo 남자 겨울 스웨이드 하이넥 무스탕 자켓 2color <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=340351515&traceid=V0-153&itemId=1083758351&vendorItemId=5588144493) 👌 
@@ -62,7 +62,7 @@ pin: true
 
 ## 2. 맨즈셀렉터 남자 겨울 오버핏 양털 무스탕자켓
 
-![무스탕 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a8c5/daee229b9779d861f6194ca4957931927f246abe18429096570936eb4c00.jpg)
+[![무스탕 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a8c5/daee229b9779d861f6194ca4957931927f246abe18429096570936eb4c00.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7532646001&traceid=V0-153&itemId=19782249968&vendorItemId=86885075203)
 
 
 👍 [맨즈셀렉터 남자 겨울 오버핏 양털 무스탕자켓 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7532646001&traceid=V0-153&itemId=19782249968&vendorItemId=86885075203) 👌 
@@ -80,7 +80,7 @@ pin: true
 
 ## 3. [당일출고] WOWayo 남자 겨울 스웨이드 하이넥 무스탕 자켓 2color
 
-![무스탕 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9b31/62c96285f5c0c274b4a1a3422d1cc5ab19ced8ca1a7329ee6b04ea195f7d.png)
+[![무스탕 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9b31/62c96285f5c0c274b4a1a3422d1cc5ab19ced8ca1a7329ee6b04ea195f7d.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=340351515&traceid=V0-153&itemId=1083758351&vendorItemId=5588144493)
 
 
 👍 [[당일출고] WOWayo 남자 겨울 스웨이드 하이넥 무스탕 자켓 2color <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=340351515&traceid=V0-153&itemId=1083758351&vendorItemId=5588144493) 👌 
@@ -98,7 +98,7 @@ pin: true
 
 ## 4. 미쏘 여성용 크롭 무스탕
 
-![무스탕 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/blqflarh/c58bebbb12d04f43a692267680e67690.jpg)
+[![무스탕 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/blqflarh/c58bebbb12d04f43a692267680e67690.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6858659324&traceid=V0-153&itemId=16366675580&vendorItemId=83558232323)
 
 
 👍 [미쏘 여성용 크롭 무스탕 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6858659324&traceid=V0-153&itemId=16366675580&vendorItemId=83558232323) 👌 
@@ -116,7 +116,7 @@ pin: true
 
 ## 5. 맨즈셀렉터 남자 겨울 오버핏 양털 무스탕자켓
 
-![무스탕 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a7df/fec2c627502be0b1568600b423fa880733a62e122bc7d76853839ffd7d2a.jpg)
+[![무스탕 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a7df/fec2c627502be0b1568600b423fa880733a62e122bc7d76853839ffd7d2a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7575413248&traceid=V0-153&itemId=19986904474&vendorItemId=87084980629)
 
 
 👍 [맨즈셀렉터 남자 겨울 오버핏 양털 무스탕자켓 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7575413248&traceid=V0-153&itemId=19986904474&vendorItemId=87084980629) 👌 
@@ -134,7 +134,7 @@ pin: true
 
 ## 6. 로로스키니 고퀄리티 여성 뽀글이 양털 후리스 조끼 자켓 베스트
 
-![무스탕 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3772/86469f44d1ac05a9047a9cbdf0f971fa2ed2995df0f8be909a7fbaa73c3d.jpg)
+[![무스탕 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3772/86469f44d1ac05a9047a9cbdf0f971fa2ed2995df0f8be909a7fbaa73c3d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6898737694&traceid=V0-153&itemId=16585212466&vendorItemId=83770447873)
 
 
 👍 [로로스키니 고퀄리티 여성 뽀글이 양털 후리스 조끼 자켓 베스트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6898737694&traceid=V0-153&itemId=16585212466&vendorItemId=83770447873) 👌 
@@ -152,7 +152,7 @@ pin: true
 
 ## 7. 코스너그 웜 딜리버 무스탕 BLACK_IVORY
 
-![무스탕 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/20a3/f78c0a568341ca776494877be5fbb20fa785a5d7f589c4e7480ba0845e40.jpg)
+[![무스탕 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/20a3/f78c0a568341ca776494877be5fbb20fa785a5d7f589c4e7480ba0845e40.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6853776814&traceid=V0-153&itemId=16337521028&vendorItemId=85927095260)
 
 
 👍 [코스너그 웜 딜리버 무스탕 BLACK_IVORY <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6853776814&traceid=V0-153&itemId=16337521028&vendorItemId=85927095260) 👌 
@@ -170,7 +170,7 @@ pin: true
 
 ## 8. 하이퀄리티 보아털 라이더 무스탕 (SUH036)
 
-![무스탕 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/898f/5f62f6afc8c592b21b9e175eab3ce36161deab0f5c55e5ce35ae8decee10.jpg)
+[![무스탕 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/898f/5f62f6afc8c592b21b9e175eab3ce36161deab0f5c55e5ce35ae8decee10.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=331712552&traceid=V0-153&itemId=1059913763&vendorItemId=5536815595)
 
 
 👍 [하이퀄리티 보아털 라이더 무스탕 (SUH036) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=331712552&traceid=V0-153&itemId=1059913763&vendorItemId=5536815595) 👌 
@@ -188,7 +188,7 @@ pin: true
 
 ## 9. [CERRUTI1881] 세루티 23FW 클라시코 트렌치코트 1종
 
-![무스탕 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c540/bf12a5019ed6d9e9998dd10e6b2ac201f2d33bb5bfbe620a8128711ec93d.jpg)
+[![무스탕 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c540/bf12a5019ed6d9e9998dd10e6b2ac201f2d33bb5bfbe620a8128711ec93d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7633340177&traceid=V0-153&itemId=20264503657&vendorItemId=87043287716)
 
 
 👍 [[CERRUTI1881] 세루티 23FW 클라시코 트렌치코트 1종 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7633340177&traceid=V0-153&itemId=20264503657&vendorItemId=87043287716) 👌 
@@ -206,7 +206,7 @@ pin: true
 
 ## 10. 미쏘 여성용 스탠카라 숏 무스탕
 
-![무스탕 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/08/16/17/6/4434d79d-366a-4603-8142-b2f4277f0b49.jpg)
+[![무스탕 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/08/16/17/6/4434d79d-366a-4603-8142-b2f4277f0b49.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7534852103&traceid=V0-153&itemId=19793221169&vendorItemId=86895750725)
 
 
 👍 [미쏘 여성용 스탠카라 숏 무스탕 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7534852103&traceid=V0-153&itemId=19793221169&vendorItemId=86895750725) 👌 

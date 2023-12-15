@@ -31,7 +31,7 @@ pin: true
 
 ## 1. [LG 24MP88HV] LED모니터 24인치 IPS초선명 패널 지원HDMI D-SUB 딱300대!, 24MP88HV
 
-![모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/adfe/642a9c95c0cf3c3f323a11275e65d4c880f08316317d0ff997843633a849.jpg)
+[![모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/adfe/642a9c95c0cf3c3f323a11275e65d4c880f08316317d0ff997843633a849.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7725582547&traceid=V0-153&itemId=20745635916&vendorItemId=87816004005)
 
 
 👍 [[LG 24MP88HV] LED모니터 24인치 IPS초선명 패널 지원HDMI D-SUB 딱300대!, 24MP88HV <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7725582547&traceid=V0-153&itemId=20745635916&vendorItemId=87816004005) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. KOORUI 60.45cm FHD Fast IPS 리얼 165Hz 1ms(gtg) 게이밍 모니터 24E3 블랙 [프리싱크/G-sync 지원]
 
-![모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6ee9/d92ad524beee0e7ee563eee25c7f87253620769ec75a252b0f952c57e215.jpg)
+[![모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6ee9/d92ad524beee0e7ee563eee25c7f87253620769ec75a252b0f952c57e215.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434027963&traceid=V0-153&itemId=19315340231&vendorItemId=86457367323)
 
 
 👍 [KOORUI 60.45cm FHD Fast IPS 리얼 165Hz 1ms(gtg) 게이밍 모니터 24E3 블랙 [프리싱크/G-sync 지원] <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7434027963&traceid=V0-153&itemId=19315340231&vendorItemId=86457367323) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 주연테크 54.6cm FHD LED 모니터 100Hz, V22FX(일반)
 
-![모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/06/19/11/3/d3445a95-f487-4f8a-8acc-cbdea7941986.jpg)
+[![모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/06/19/11/3/d3445a95-f487-4f8a-8acc-cbdea7941986.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7410323525&traceid=V0-153&itemId=19198810280&vendorItemId=86316217055)
 
 
 👍 [주연테크 54.6cm FHD LED 모니터 100Hz, V22FX(일반) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7410323525&traceid=V0-153&itemId=19198810280&vendorItemId=86316217055) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. LG전자 68.6cm FHD 모니터, 27MQ400C
 
-![모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4013224759332494-94056b6f-a12f-4709-adb5-df6bd2577583.jpg)
+[![모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4013224759332494-94056b6f-a12f-4709-adb5-df6bd2577583.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148546&traceid=V0-153&itemId=20660237461&vendorItemId=84848572699)
 
 
 👍 [LG전자 68.6cm FHD 모니터, 27MQ400C <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148546&traceid=V0-153&itemId=20660237461&vendorItemId=84848572699) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 삼성 20~27인치 LED 중고 모니터, 삼성/LG 22LED
 
-![모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/36e4/a4b7c1da26e4313310060441d4a80037a59ba147c781b9eee708f5b23efd.jpg)
+[![모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/36e4/a4b7c1da26e4313310060441d4a80037a59ba147c781b9eee708f5b23efd.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7662669226&traceid=V0-153&itemId=20418870993&vendorItemId=87500650340)
 
 
 👍 [삼성 20~27인치 LED 중고 모니터, 삼성/LG 22LED <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7662669226&traceid=V0-153&itemId=20418870993&vendorItemId=87500650340) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. [이벤트 특가] 19인치 5:4 LED 모니터 특집 삼성/LG/HP, 삼성 19 LED, LS19C20K
 
-![모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/472b/51362d724cca96f24ee8e5c4e9472f59f630e05d12e42604676e84d8025d.jpg)
+[![모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/472b/51362d724cca96f24ee8e5c4e9472f59f630e05d12e42604676e84d8025d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7414744466&traceid=V0-153&itemId=19220204867&vendorItemId=87502022377)
 
 
 👍 [[이벤트 특가] 19인치 5:4 LED 모니터 특집 삼성/LG/HP, 삼성 19 LED, LS19C20K <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7414744466&traceid=V0-153&itemId=19220204867&vendorItemId=87502022377) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. KOORUI 60.45cm FHD 게이밍 모니터 리얼 165Hz 1ms MPRT+프리싱크/G-sync 지원 24E4 블랙
 
-![모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/dd41/bd843d06fff4bff80f6f6c583229c9fee7ffb3291dd976298251d73f124e.jpg)
+[![모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/dd41/bd843d06fff4bff80f6f6c583229c9fee7ffb3291dd976298251d73f124e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7640065642&traceid=V0-153&itemId=20297247374&vendorItemId=87392018814)
 
 
 👍 [KOORUI 60.45cm FHD 게이밍 모니터 리얼 165Hz 1ms MPRT+프리싱크/G-sync 지원 24E4 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7640065642&traceid=V0-153&itemId=20297247374&vendorItemId=87392018814) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. LG전자 60.4cm FHD 모니터, 24MQ400C
 
-![모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4013224391974847-a278c950-c718-4a62-a546-393b400d7194.jpg)
+[![모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4013224391974847-a278c950-c718-4a62-a546-393b400d7194.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148556&traceid=V0-153&itemId=20660237482&vendorItemId=84851123428)
 
 
 👍 [LG전자 60.4cm FHD 모니터, 24MQ400C <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148556&traceid=V0-153&itemId=20660237482&vendorItemId=84851123428) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 빅트랙 54.48cm FHD 리얼 75Hz 평면 게이밍 모니터 블랙, 22FM7501(일반)
 
-![모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/7832983261527917-ca4df5df-32d2-4437-96b2-6eb1a54b0ee1.png)
+[![모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/7832983261527917-ca4df5df-32d2-4437-96b2-6eb1a54b0ee1.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7413117605&traceid=V0-153&itemId=16059577766&vendorItemId=83262900784)
 
 
 👍 [빅트랙 54.48cm FHD 리얼 75Hz 평면 게이밍 모니터 블랙, 22FM7501(일반) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7413117605&traceid=V0-153&itemId=16059577766&vendorItemId=83262900784) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 삼성전자 80cm QHD 오디세이 G5 게이밍 모니터, LC32G54TQWKXKR
 
-![모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bf47/b393a837073510cd7678ade82164d555c411a85e85ddb8f4380e733d8db5.jpg)
+[![모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bf47/b393a837073510cd7678ade82164d555c411a85e85ddb8f4380e733d8db5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2016668002&traceid=V0-153&itemId=3430374653&vendorItemId=85848968164)
 
 
 👍 [삼성전자 80cm QHD 오디세이 G5 게이밍 모니터, LC32G54TQWKXKR <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2016668002&traceid=V0-153&itemId=3430374653&vendorItemId=85848968164) 👌 

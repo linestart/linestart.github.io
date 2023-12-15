@@ -35,7 +35,7 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 ## 1. WD Blue SA510 SATA SSD, WDS100T3B0A, 1TB
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4714733405027688-bc3b1626-ae94-402d-8615-8d2b7e312305.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4714733405027688-bc3b1626-ae94-402d-8615-8d2b7e312305.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6702361363&traceid=V0-153&itemId=15115812722&vendorItemId=82337605110)
 
 
 👍 [WD Blue SA510 SATA SSD, WDS100T3B0A, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6702361363&traceid=V0-153&itemId=15115812722&vendorItemId=82337605110) 👌 
@@ -53,7 +53,7 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 ## 2. 한창코퍼레이션 CLOUD SSD, 512GB
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1aff/f1af70636eb7c997dad70f4c57ad12e548a43850ea594d905bd9c97a85e5.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1aff/f1af70636eb7c997dad70f4c57ad12e548a43850ea594d905bd9c97a85e5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196383&vendorItemId=80083674408)
 
 
 👍 [한창코퍼레이션 CLOUD SSD, 512GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196383&vendorItemId=80083674408) 👌 
@@ -71,7 +71,7 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 ## 3. 한창코퍼레이션 CLOUD SSD, 1TB
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1aff/f1af70636eb7c997dad70f4c57ad12e548a43850ea594d905bd9c97a85e5.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1aff/f1af70636eb7c997dad70f4c57ad12e548a43850ea594d905bd9c97a85e5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196384&vendorItemId=80083674441)
 
 
 👍 [한창코퍼레이션 CLOUD SSD, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196384&vendorItemId=80083674441) 👌 
@@ -89,7 +89,7 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 ## 4. SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470) 👌 
@@ -107,7 +107,7 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 ## 5. 도시바 칸비오 외장하드 어드밴스 2세대 + 파우치 세트, 2TB, 크림 화이트
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2447018791230298-3c17dba6-360f-437d-9ee5-c9db0bcdd94a.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2447018791230298-3c17dba6-360f-437d-9ee5-c9db0bcdd94a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4798364374&traceid=V0-153&itemId=6211776190&vendorItemId=73507693765)
 
 
 👍 [도시바 칸비오 외장하드 어드밴스 2세대 + 파우치 세트, 2TB, 크림 화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4798364374&traceid=V0-153&itemId=6211776190&vendorItemId=73507693765) 👌 
@@ -125,7 +125,7 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 ## 6. 도시바 칸비오 외장하드 어드밴스 2세대 + 파우치 세트 DTCA20, 2TB, 제트 블랙
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/01/18/9/8/ee9a3b3e-95a2-4b2c-bd56-941a0effdcc1.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/01/18/9/8/ee9a3b3e-95a2-4b2c-bd56-941a0effdcc1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4798364374&traceid=V0-153&itemId=6211776200&vendorItemId=73507693802)
 
 
 👍 [도시바 칸비오 외장하드 어드밴스 2세대 + 파우치 세트 DTCA20, 2TB, 제트 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4798364374&traceid=V0-153&itemId=6211776200&vendorItemId=73507693802) 👌 
@@ -143,7 +143,7 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 ## 7. 삼성전자 870 EVO SATA SSD, 500GB, MZ-77E500B/KR
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4c39/498043257b06e0000d78fa1fd07fa45aaa8c9af1cf7d186b9cfdcf26216c.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4c39/498043257b06e0000d78fa1fd07fa45aaa8c9af1cf7d186b9cfdcf26216c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=75697199773)
 
 
 👍 [삼성전자 870 EVO SATA SSD, 500GB, MZ-77E500B/KR <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=75697199773) 👌 
@@ -161,7 +161,7 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 ## 8. SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457) 👌 
@@ -179,7 +179,7 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 ## 9. 샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 1TB/2TB/4TB (케이스포함), 블랙, 1TB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d12f/32f5f8b05b003ed820f9c5b9cd9eb823684d4086b2165b05376a3f8e9db2.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d12f/32f5f8b05b003ed820f9c5b9cd9eb823684d4086b2165b05376a3f8e9db2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7689353390&traceid=V0-153&itemId=20558892306&vendorItemId=86569031372)
 
 
 👍 [샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 1TB/2TB/4TB (케이스포함), 블랙, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7689353390&traceid=V0-153&itemId=20558892306&vendorItemId=86569031372) 👌 
@@ -197,7 +197,7 @@ SSD는 HDD에 비해 다양한 장점을 갖춘 저장 장치입니다. 컴퓨�
 
 ## 10. 마이크론 Crucial SSD, MX500, 500GB
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7231/b127cdbd23ccf2111ce8b34601b69a0735e7fc703910763c1117514ebbaf.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7231/b127cdbd23ccf2111ce8b34601b69a0735e7fc703910763c1117514ebbaf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=104047591&traceid=V0-153&itemId=19281675499&vendorItemId=85082188213)
 
 
 👍 [마이크론 Crucial SSD, MX500, 500GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=104047591&traceid=V0-153&itemId=19281675499&vendorItemId=85082188213) 👌 

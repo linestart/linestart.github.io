@@ -31,7 +31,7 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 ## 1. 솔리다임 P41 PLUS M.2 NVMe Gen4 QLC SSD, SSDPFKNU010TZ, 1TB
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/05/08/12/5/25f937f6-6f95-42c8-8135-90170ab78e46.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/05/08/12/5/25f937f6-6f95-42c8-8135-90170ab78e46.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7320017635&traceid=V0-153&itemId=18772380274&vendorItemId=85903994990)
 
 
 👍 [솔리다임 P41 PLUS M.2 NVMe Gen4 QLC SSD, SSDPFKNU010TZ, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7320017635&traceid=V0-153&itemId=18772380274&vendorItemId=85903994990) 👌 
@@ -49,7 +49,7 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 ## 2. 기가바이트 SSD, GP-GSTFS31100TNTD, 1TB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/xbp3faej/4261d7606c7048ce9e483311733336ca.png)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/xbp3faej/4261d7606c7048ce9e483311733336ca.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=9127701173&vendorItemId=76413743812)
 
 
 👍 [기가바이트 SSD, GP-GSTFS31100TNTD, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=9127701173&vendorItemId=76413743812) 👌 
@@ -67,7 +67,7 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 ## 3. 기가바이트 SSD, GIGABYTE SSD 240GB, 240GB
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5823/5873a8e2c08863d8e7f1fe446c9bdc46ca395e88ee1dd4e8a9f9cad59e05.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5823/5873a8e2c08863d8e7f1fe446c9bdc46ca395e88ee1dd4e8a9f9cad59e05.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=2058262205&vendorItemId=70565107853)
 
 
 👍 [기가바이트 SSD, GIGABYTE SSD 240GB, 240GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=2058262205&vendorItemId=70565107853) 👌 
@@ -85,7 +85,7 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 ## 4. SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470) 👌 
@@ -103,7 +103,7 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 ## 5. 테란5 Gen5 USB 3.1 C-Type 외장하드 4TB 대용량/초고속/케이스증정, 실버
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fe65/8c3b0d52506bc173115c697532b5f52095f23977f6bc3cf3a3f0bb785bdc.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fe65/8c3b0d52506bc173115c697532b5f52095f23977f6bc3cf3a3f0bb785bdc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5973428191&traceid=V0-153&itemId=10735175988&vendorItemId=78015762461)
 
 
 👍 [테란5 Gen5 USB 3.1 C-Type 외장하드 4TB 대용량/초고속/케이스증정, 실버 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5973428191&traceid=V0-153&itemId=10735175988&vendorItemId=78015762461) 👌 
@@ -121,7 +121,7 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 ## 6. M.2 SATA PCI-Express SSD 변환 아답터 카드 데스크탑용 NVMe NGFF 겸용 LS-PCIE-M2SATAN
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1052095564379969-83ffebd9-3696-4721-b5d5-1d1af3124f8b.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1052095564379969-83ffebd9-3696-4721-b5d5-1d1af3124f8b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5240021570&traceid=V0-153&itemId=7399007603&vendorItemId=74690028855)
 
 
 👍 [M.2 SATA PCI-Express SSD 변환 아답터 카드 데스크탑용 NVMe NGFF 겸용 LS-PCIE-M2SATAN <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5240021570&traceid=V0-153&itemId=7399007603&vendorItemId=74690028855) 👌 
@@ -139,7 +139,7 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 ## 7. SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457) 👌 
@@ -157,7 +157,7 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 ## 8. 샌디스크 Portable SSD E30, 1TB, 블랙
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 
 👍 [샌디스크 Portable SSD E30, 1TB, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486) 👌 
@@ -175,7 +175,7 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 ## 9. 에이데이타 외장하드 HV320 2TB, 블루
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3506935589679716-2249c90d-000d-41a0-aa22-6e494e4125c4.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3506935589679716-2249c90d-000d-41a0-aa22-6e494e4125c4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1925951860&traceid=V0-153&itemId=3269541376&vendorItemId=71256563036)
 
 
 👍 [에이데이타 외장하드 HV320 2TB, 블루 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1925951860&traceid=V0-153&itemId=3269541376&vendorItemId=71256563036) 👌 
@@ -193,7 +193,7 @@ SSD는 HDD와 달리 작동 소음이 없고 발열이 적습니다. 따라서 �
 
 ## 10. 마이크론 Crucial SSD, MX500, 500GB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/product/image/vendoritem/2018/11/02/3775286726/d5d25003-a1cd-45c7-a708-60debdee7acb.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/product/image/vendoritem/2018/11/02/3775286726/d5d25003-a1cd-45c7-a708-60debdee7acb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=104047591&traceid=V0-153&itemId=19281675499&vendorItemId=3775286726)
 
 
 👍 [마이크론 Crucial SSD, MX500, 500GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=104047591&traceid=V0-153&itemId=19281675499&vendorItemId=3775286726) 👌 

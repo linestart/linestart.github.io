@@ -39,7 +39,7 @@ pin: true
 
 ## 1. 포켓몬카드게임 소드앤실드 스타터세트 VSTAR 루카리오 - 루카리오 V STAR (한글판)
 
-![포켓몬카드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c3c5/a936690d20e42f113b4a412f071b80577a8ed5b63ca48270248d528abb04.jpg)
+[![포켓몬카드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c3c5/a936690d20e42f113b4a412f071b80577a8ed5b63ca48270248d528abb04.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6498330574&traceid=V0-153&itemId=17743082953&vendorItemId=84907687072)
 
 
 👍 [포켓몬카드게임 소드앤실드 스타터세트 VSTAR 루카리오 - 루카리오 V STAR (한글판) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6498330574&traceid=V0-153&itemId=17743082953&vendorItemId=84907687072) 👌 
@@ -57,7 +57,7 @@ pin: true
 
 ## 2. 포켓몬카드 한글판 스칼렛&바이올렛 확장팩ex2종1세트
 
-![포켓몬카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3b5f/26a448b44b5044635fda5fdbc34db8a36c95a4c82bdaca91f2acb57fbdb1.jpg)
+[![포켓몬카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3b5f/26a448b44b5044635fda5fdbc34db8a36c95a4c82bdaca91f2acb57fbdb1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7211547387&traceid=V0-153&itemId=18251943867&vendorItemId=87084938835)
 
 
 👍 [포켓몬카드 한글판 스칼렛&바이올렛 확장팩ex2종1세트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7211547387&traceid=V0-153&itemId=18251943867&vendorItemId=87084938835) 👌 
@@ -75,7 +75,7 @@ pin: true
 
 ## 3. 포켓몬카드 확장팩 흑염의지배자 1박스 한글판
 
-![포켓몬카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/52f4/20e20f47eea4303befe796433712158005c01effc5c8e3f6cb838c3ac72f.jpg)
+[![포켓몬카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/52f4/20e20f47eea4303befe796433712158005c01effc5c8e3f6cb838c3ac72f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7550184680&traceid=V0-153&itemId=19868146618&vendorItemId=86968944395)
 
 
 👍 [포켓몬카드 확장팩 흑염의지배자 1박스 한글판 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7550184680&traceid=V0-153&itemId=19868146618&vendorItemId=86968944395) 👌 
@@ -111,7 +111,7 @@ pin: true
 
 ## 5. 띠부씰앨범 포켓몬카드 띠부띠부씰 앨범속지 스티커 실 북 도감 3공 바인더 내지 속지 10매, 1.포켓몬 띠부씰앨범 속지(10매)
 
-![포켓몬카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c99a/009055127def03830b721242a36f5235ad4942b5bdabb0626ad2247cb71e.jpg)
+[![포켓몬카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c99a/009055127def03830b721242a36f5235ad4942b5bdabb0626ad2247cb71e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6978346134&traceid=V0-153&itemId=17038956122&vendorItemId=84213842102)
 
 
 👍 [띠부씰앨범 포켓몬카드 띠부띠부씰 앨범속지 스티커 실 북 도감 3공 바인더 내지 속지 10매, 1.포켓몬 띠부씰앨범 속지(10매) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6978346134&traceid=V0-153&itemId=17038956122&vendorItemId=84213842102) 👌 
@@ -129,7 +129,7 @@ pin: true
 
 ## 6. 바이올렛ex 포켓몬카드 1갑 30팩입
 
-![포켓몬카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c4a7/ab80575db6672ee712b13a8e03d0af1de4b4ba7e475a88edda66b1bb29cc.jpg)
+[![포켓몬카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c4a7/ab80575db6672ee712b13a8e03d0af1de4b4ba7e475a88edda66b1bb29cc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7455431998&traceid=V0-153&itemId=19419845179&vendorItemId=86531368500)
 
 
 👍 [바이올렛ex 포켓몬카드 1갑 30팩입 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7455431998&traceid=V0-153&itemId=19419845179&vendorItemId=86531368500) 👌 
@@ -147,7 +147,7 @@ pin: true
 
 ## 7. 포켓몬스터 카드게임 하이클래스팩 - VSTAR유니버스 브이스타유니버스 한글판(10팩 1상자), 단품
 
-![포켓몬카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0a4e/bdf7121d9c4969c8ce3a32d2ef84b5d635ee7e0b97ee2650b1fd1643b768.png)
+[![포켓몬카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0a4e/bdf7121d9c4969c8ce3a32d2ef84b5d635ee7e0b97ee2650b1fd1643b768.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7164878292&traceid=V0-153&itemId=18038564504&vendorItemId=84672494414)
 
 
 👍 [포켓몬스터 카드게임 하이클래스팩 - VSTAR유니버스 브이스타유니버스 한글판(10팩 1상자), 단품 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7164878292&traceid=V0-153&itemId=18038564504&vendorItemId=84672494414) 👌 
@@ -165,7 +165,7 @@ pin: true
 
 ## 8. 포켓몬카드 151 강화확장팩 1박스(20팩입)
 
-![포켓몬카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5840/d4c4153bdd9a42461c9736b658bab95db9f0470bb358d5fc3199d6ff682b.png)
+[![포켓몬카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5840/d4c4153bdd9a42461c9736b658bab95db9f0470bb358d5fc3199d6ff682b.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7491400217&traceid=V0-153&itemId=19589775610&vendorItemId=86702005093)
 
 
 👍 [포켓몬카드 151 강화확장팩 1박스(20팩입) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7491400217&traceid=V0-153&itemId=19589775610&vendorItemId=86702005093) 👌 
@@ -183,7 +183,7 @@ pin: true
 
 ## 9. 코리아보드게임즈 파니니 2022 FIFA 카타르 월드컵 스포츠 카드 기본팩 DP 20p, 혼합색상
 
-![포켓몬카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/10/18/17/1/ddc9600f-2ad9-470a-86ab-1c03b7343bcc.png)
+[![포켓몬카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/10/18/17/1/ddc9600f-2ad9-470a-86ab-1c03b7343bcc.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6851315890&traceid=V0-153&itemId=16322279168&vendorItemId=83514342464)
 
 
 👍 [코리아보드게임즈 파니니 2022 FIFA 카타르 월드컵 스포츠 카드 기본팩 DP 20p, 혼합색상 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6851315890&traceid=V0-153&itemId=16322279168&vendorItemId=83514342464) 👌 
@@ -201,7 +201,7 @@ pin: true
 
 ## 10. 빨리 받을 수 있는 포켓몬카드 팩, 바이올렛EX  (1박스)
 
-![포켓몬카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b148/343f81524d826caa9f20bc697a5e22618f9a9cee71a821da3066607f7245.png)
+[![포켓몬카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b148/343f81524d826caa9f20bc697a5e22618f9a9cee71a821da3066607f7245.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6626872936&traceid=V0-153&itemId=20082726244&vendorItemId=87178281263)
 
 
 👍 [빨리 받을 수 있는 포켓몬카드 팩, 바이올렛EX  (1박스) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6626872936&traceid=V0-153&itemId=20082726244&vendorItemId=87178281263) 👌 

@@ -31,7 +31,7 @@ pin: true
 
 ## 1. Apple 2023 에어팟 프로 2세대 USB-C 블루투스 이어폰, 화이트, MTJV3KH/A
 
-![에어팟 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/09/19/17/3/2fc81db0-55e2-4571-aac2-4556b5e2e916.jpg)
+[![에어팟 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/09/19/17/3/2fc81db0-55e2-4571-aac2-4556b5e2e916.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7608804797&traceid=V0-153&itemId=20146298818&vendorItemId=87239403818)
 
 
 👍 [Apple 2023 에어팟 프로 2세대 USB-C 블루투스 이어폰, 화이트, MTJV3KH/A <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7608804797&traceid=V0-153&itemId=20146298818&vendorItemId=87239403818) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. Apple 에어팟 2세대 유선 충전 모델, MV7N2KH/A
 
-![에어팟 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2019/09/02/4643936599/1d600ddf-f0ca-4f91-b62e-d1d86797451d.jpg)
+[![에어팟 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2019/09/02/4643936599/1d600ddf-f0ca-4f91-b62e-d1d86797451d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=210191841&traceid=V0-153&itemId=2386507783&vendorItemId=4643936599)
 
 
 👍 [Apple 에어팟 2세대 유선 충전 모델, MV7N2KH/A <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=210191841&traceid=V0-153&itemId=2386507783&vendorItemId=4643936599) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. [주문제작] 전기종가능 드로잉 커플 에어팟 케이스 +버즈 플러스 라이브 프로 케이스 +생일선물, 컬러드로잉
 
-![에어팟 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ae9a/b11c911c1b2abdff31aa550304059c83e6ff21b80af679b82d6838eaca1b.jpg)
+[![에어팟 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ae9a/b11c911c1b2abdff31aa550304059c83e6ff21b80af679b82d6838eaca1b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7203925814&traceid=V0-153&itemId=18215304161&vendorItemId=74371442191)
 
 
 👍 [[주문제작] 전기종가능 드로잉 커플 에어팟 케이스 +버즈 플러스 라이브 프로 케이스 +생일선물, 컬러드로잉 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7203925814&traceid=V0-153&itemId=18215304161&vendorItemId=74371442191) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. Apple 2021 에어팟 3세대 블루투스 이어폰
 
-![에어팟 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/7093037451552247-2a67e10a-1d1c-43fa-b170-36000eebcd6f.jpg)
+[![에어팟 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/7093037451552247-2a67e10a-1d1c-43fa-b170-36000eebcd6f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6135671335&traceid=V0-153&itemId=11731447959&vendorItemId=79005405830)
 
 
 👍 [Apple 2021 에어팟 3세대 블루투스 이어폰 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6135671335&traceid=V0-153&itemId=11731447959&vendorItemId=79005405830) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 블라우풍트 AAC ENC 노이즈 캔슬링 블루투스 이어폰, BLP-BE331P(퍼플), 퍼플
 
-![에어팟 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c00e/c6b577b4c1c7ad8d9cf7f2edec72f990c1bc1fca4a2777fddd4f7552cc49.png)
+[![에어팟 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c00e/c6b577b4c1c7ad8d9cf7f2edec72f990c1bc1fca4a2777fddd4f7552cc49.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6577822503&traceid=V0-153&itemId=19886353861&vendorItemId=87075084531)
 
 
 👍 [블라우풍트 AAC ENC 노이즈 캔슬링 블루투스 이어폰, BLP-BE331P(퍼플), 퍼플 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6577822503&traceid=V0-153&itemId=19886353861&vendorItemId=87075084531) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 바우아토 액티브 노이즈 캔슬링 무선 블루투스 5.3 커널형 이어폰 BAUATO ANC-01
 
-![에어팟 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f993/b2cac59abde462e1cf9a5049f46838b163469692541d7f5d609b99b737ac.png)
+[![에어팟 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f993/b2cac59abde462e1cf9a5049f46838b163469692541d7f5d609b99b737ac.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7688154646&traceid=V0-153&itemId=20552519345&vendorItemId=87628613358)
 
 
 👍 [바우아토 액티브 노이즈 캔슬링 무선 블루투스 5.3 커널형 이어폰 BAUATO ANC-01 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7688154646&traceid=V0-153&itemId=20552519345&vendorItemId=87628613358) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. Apple 2022 에어팟 3세대 유선 충전 블루투스 이어폰, 화이트, MPNY3KH/A
 
-![에어팟 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8180553906635378-b6f52d5e-de6d-4bec-aab2-821a2ba85b09.crdownload)
+[![에어팟 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8180553906635378-b6f52d5e-de6d-4bec-aab2-821a2ba85b09.crdownload)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6773610094&traceid=V0-153&itemId=15910748720&vendorItemId=83118291928)
 
 
 👍 [Apple 2022 에어팟 3세대 유선 충전 블루투스 이어폰, 화이트, MPNY3KH/A <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6773610094&traceid=V0-153&itemId=15910748720&vendorItemId=83118291928) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. Apple 에어팟 맥스 블루투스헤드셋, 실버
 
-![에어팟 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/218005008681-0735e1ea-25ea-4d80-b172-74d4cfee0812.jpg)
+[![에어팟 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/218005008681-0735e1ea-25ea-4d80-b172-74d4cfee0812.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4584075863&traceid=V0-153&itemId=5623805740&vendorItemId=72922972711)
 
 
 👍 [Apple 에어팟 맥스 블루투스헤드셋, 실버 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4584075863&traceid=V0-153&itemId=5623805740&vendorItemId=72922972711) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 브리츠 무선 블루투스 5.3 이어폰, Polypop, 화이트
 
-![에어팟 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/06/29/16/1/d5104bbf-ea02-4e52-957e-e835a8349dce.jpg)
+[![에어팟 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/06/29/16/1/d5104bbf-ea02-4e52-957e-e835a8349dce.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7432496594&traceid=V0-153&itemId=19307039905&vendorItemId=86421373648)
 
 
 👍 [브리츠 무선 블루투스 5.3 이어폰, Polypop, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7432496594&traceid=V0-153&itemId=19307039905&vendorItemId=86421373648) 👌 
